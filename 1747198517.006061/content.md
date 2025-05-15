@@ -1,0 +1,25 @@
+I think about “ [motte-and-bailey](https://en.wikipedia.org/wiki/Motte-and-bailey_fallacy) ” arguments a lot. I experience people using the technique a lot in my professional life. Even though I rarely make explicit reference to the idea, it helps me sanity check myself and decide how to express by disagreement.
+
+When I talk to people about motte-and-bailey arguments, however, I start to feel worried about the entire culture the idea tends to incentivize. There seems to be a background assumption that you should “stay in the motte”, i.e., stay in the space of ideas you feel “safe” arguing.
+
+This isn’t intrinsic to the idea. In fact, the main point of the idea is just about conflation: there are ideas that are harder and easier to defend and people to launder the harder to defend ideas by associating them with the easier to defend ideas. This doesn’t make either of the ideas “bad” or “wrong” it just means that they’re not the same.
+
+There’s a similar sort of thing going on in Tal Yarkoni’s _[The Generalizability Crisis](https://psyarxiv.com/jqw35/),_ which suggests that the secret sauce of Psychology’s magic (read: fake) ability to prove really complex hypotheses relies on seductive linguistic extensions of what has been show by the evidence. In Psychology it is very easy to tell “just so” stories that are very convincing because of the way we are constantly peddling in narrativizations of the human mind to understand each other in everyday life. But this problem of what experiments actually mean is really just all over the place.
+
+Statistics won’t save you from it. Statistics only work when you’re underlying conceptual model of the situation isn’t already so fundamentally confused that you can catch yourself making a mistake. If you think storks deliver babies, you usually have to rely on simpler ideas like “have I ever seen a single stork do this?” to check your theories. If you already have the wrong framework, [you will misunderstand what statistical tests are telling you or apply the wrong one.](https://web.archive.org/web/20210413060837/http://robertmatthews.org/wp-content/uploads/2016/03/RM-storks-paper.pdf)
+
+The fundamental problem we have is that the world is really complicated, and we don’t actually have great tools to understand what’s going on at a fine enough level to know how to check if we’re wrong. That’s why, despite all the howling about “the scientific method” the real test of results in a given field is whether they get used by someone who’s not in that field. I am eternally suspicious that everything that has not been exported from a field yet is just a result of the culture of that field. You have to continually lose money by betting against a hypothesis for it to be real. [And even then, it might be real because of memetics, the explanation is always suspect.](https://en.wikipedia.org/wiki/Clever_Hans)
+
+Then how can we stay in the motte?
+
+That’s exactly the thing: the linguistic tool “the motte-and-bailey fallacy” is meant to safeguard you from over-extending, not stop you from extending at all. There are always claims we don’t feel comfortable defending in adversarial circumstances, but we need to rely on them as we’re thinking about how to gather more evidence. And the frontiers of knowledge are mostly made out of these claims, scaffolded by the extensions of claims we have strong evidence for in more well-understood circumstances.
+
+Which is just to say something very simple: _if you stay in the motte you will starve to death_.
+
+The bailey is where all the food comes from. It’s where you import aspects of the great unknown and then attempt to process them so they can become parts of your stronghold. If you’re under attack, then you can retreat the motte and say “all we’re claiming definitively is this bit, the rest is provisional” and you would be _right and honest_. This isn’t the motte-and-bailey fallacy, it’s just a normal part of the scientific method.
+
+If you stay in the defendable zone you end-up fighting for scraps with everyone else who was too scared to be called out as wrong. But that’s the funny thing, when there’s enough competition (and the internet means there is for most knowledge pursuits), there is almost no alpha in trying to discover something in the defensible zone—because someone was going to discover it a moment after you anyway.
+
+The overwhelming majority of value in contemporary knowledge pursuits isn’t in meticulously combing for missing gems in the land everyone wants to mine, it’s in coming up with left field hypotheses that are easy enough to test that it’s worth the risk.
+
+If you stay in the castle looking for the treasures that haven’t already been looted, you will starve to death, because the economic activity producing food for thought is all happening outside—and you have nothing left to trade.

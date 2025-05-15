@@ -1,0 +1,1042 @@
+## God-Shaped Hole
+
+[![](https://wiki.chadnet.org/icons/chads/chad.png)](https://wiki.chadnet.org/)
+
+Listed under [Zero HP Lovecraft](https://wiki.chadnet.org/zero-hp-lovecraft).[Theme](https://wiki.chadnet.org/theme)
+
+On October 22, 2018. Author: [Zero HP Lovecraft](https://twitter.com/0x49fa98).
+
+Note from Zero HP Lovecraft: this article is best viewed in dark or night theme. [Click here to change your theme.](https://wiki.chadnet.org/theme)
+
+## I. To Emily
+
+> If it is true, O Gods, that you can give all things, I pray  
+> to have as my wife–” but, he did not dare  
+> to add “my ivory statue-maid,” and said,  
+> “One like my ivory–.”  
+> **— Ovid,** _Metamorphosis_
+
+## Desire is a Machine
+
+The world faded in and out and I found “myself” in an industrial loft with dusky orange light filtering in through a west-facing window. Despite the sunlight, it was dim inside, and candles flickered on top of a distressed wooden mantlepiece made of reclaimed wood. The walls were exposed brick and there were visible copper pipes on the ceiling high above me.
+
+A trustworthy-sounding (β)narrator said, “This is about how the experience of loving a machine can teach us new ways to love each other and ourselves.”
+
+When you watch a fune, you get to see the world from someone else’s perspective; they say that since people have grown up with funes, we all have trouble formulating a coherent self but we also have more empathy than any previous generation. In this clip, the center of my perspective was located in the body of an attractive woman, probably in her mid thirties, and I was looking out through her eyes, but as with all funes, if I turned my head or moved my own eyes, the AI in the codec extrapolated a subtle camera shift to accommodate my brain’s expectations. This mitigates motion sickness in situations of total spatial immersion. After a few minutes you experience an uncanny semi-limbic illusion that you’re really walking and really moving your arms etc.
+
+“I” turned my head and looked down and I was wearing form-fitting clothes, a shimmering metamaterial that warped the sunlight around me into a subtle halo. A voice that seemed to come from just below my center of awareness, resonant as if I were hearing myself, began to speak.
+
+“My name is Liz. When I divorced my partner, Matt, after a marriage of seven years, I wanted to take my time getting back into the dating scene, but the idea of another thinking, breathing human partner—one with needs and emotions—felt too daunting to me.
+
+“I had just gotten out of a rocky divorce. Matt and I were married young, when we were still in college, and even though I loved him, I had felt a growing sense that he was smothering me. It was always his needs, his desires, his goals.”
+
+I walked through a tastefully decorated hallway and emerged into a lounge with high ceilings and tufted leather couches and chairs, where I took a seat. An older woman, whose shadow was a curvy 1950s pin-up girl, was standing at a lectern, and she welcomed me in.
+
+The narrator spoke, “Claire, a vivacious and ambitious single mother-cum-madame is the owner and proprietor of _Radiant Heart,_ an upscale dildonic bar on the West End. Here, among exposed brick and high ceilings, she curates a cybernetic cavalcade of erotic possibilities.”
+
+(β)Claire said, “A lot of our customers don’t know what to expect on their first visit, but I’m here to help women learn how it can be empowering to do the choosing and explore their options. It can be intimidating when all the studs come out and line up, but after they get past the initial anxiety, most women learn to have a lot of fun making the choice.
+
+“Of course, for people who are more reserved about expressing their preferences, we have robots to help with that, too. Some of our customers prefer not to state their pick explicitly. In that case, we have a classifier designed to read all of their biometric indicators. From a small flush of the cheeks to a subtle dilation of the pupils, our tech is world-class when it comes to understanding the preferences of our clientele.”
+
+Allegory rendered a fireplace on the wall, dancing fire bathing the room in warm, dynamic colors. A robot in a tuxedo descended from a grand staircase and brought “me” a glass of red wine and a joint.
+
+Liz’s voice again, as if it were mine, “The first time I visited a dildotec, I was full of trepidation, but what I have learned is that the bots are here for me, and yet they still have a personality and a will of their own, so even though it’s my choice, it’s their choice, too. I feel like if you get used to your partner just slavishly obeying you, then that can become your model for how you treat real people, and that feels gross. But the bots at _Radiant Heart_ aren’t like that at all; there’s something about the way I choose to give up control that feels so empowering.”
+
+(β)Claire gave an invisible signal and a line of “studs” walked out from a hidden place, marching in lockstep with robot precision. They each had a name, which Allegory announced in a velvety, melodic voice. One by one, they stood at attention before me.
+
+“Augustus!” Seven feet tall, his chiseled physique was colorized to look like a Roman statue; his legs and his arms were as marble. He carried a sword at his side, and wore a military uniform.
+
+“Marquis!” Seven feet tall, vantablack skin. Allegory had trouble decorating him; he moved like a glitch. In place of hands, he had spinning knives, with which to threaten his lover. What if something went wrong?
+
+“Dracula!” Seven feet tall, elegant in evening attire, his face was long and dire, a touch of gray in his slicked back hair, he had fangs instead of teeth.
+
+“Chad!” Seven feet tall, extra-broad and hypermuscular, covered entirely in chrome, his head at a perfect angle at all times.
+
+“Anubis!” Seven feet tall, with the head of a ravenous jackal, his animal hunger barely restrained, his well-muscled chest and arms covered in soft, short fur.
+
+“Conan!” Seven feet tall, wearing only a loincloth, will pick you up over his shoulder and carry you to the bedroom, ignoring your screams of protest and delight.
+
+“Lucifer!” Seven feet tall, bright red, the boyish face of an angel, dripping with arrogance and charm.
+
+They loomed over me, some stoic, some grinning smugly as if to a private joke. All had their chests out, their shoulders relaxed, contrapposto, awaiting Liz’s decision without a trace of urgency. A heads up display showed me that a classifier was analyzing the hidden indicators of “my” choice, but before it could finish, my perspective snapped to a neutral location in an academic office, where a smart-looking woman was seated at her desk.
+
+She said, “Hello, I’m Michelle Northey, a professor of psychodildonics at Colombia University and an expert in cybersexual ethics.
+
+“The key difference between the first wave sexbots and the second wave is a certain level of autonomy and unpredictability. No one wants to have sex with a robot that just lies there and obeys. That’s the white heteropatriarchal model of sex. What people are learning is that even if their partner is a robot, that doesn’t justify treating them like an object. A healthy sexual relationship has an element of dynamism. You can’t just control your partner, you also need the freedom to be controlled. Your lover should surprise you.”
+
+I snapped back to the dildotec from the first scene, except I was looking out from the madame’s eyes now, watching as one of the studbots escorted (β)Liz back out into the lobby, holding her hand. Her shadow did not conceal the spring in her step or the glow of satisfaction on her cheeks.
+
+I-as-Claire said, “This is her third visit with us in a month, but she’s far from the only one. According to a recent poll conducted by Gallup, 46% of women and 21% of men have had a sexual encounter with a studbot, and half of all studbot customers patronize them once a month or more.
+
+A massive man with lean muscles came into the lounge, his shadow a vibrant Carnival costume replete with incandescent peacock feathers and pink platform gogo boots. I-as-Claire said, “Virgil Santos is another one of my regulars. At 6’2” and 230 lbs, he has an imposing figure, but when he talks, he’s so bubbly and warm, like a sister you never had.
+
+(β) Virgil said. “I think it’s a really exciting new opportunity and a way to learn about sex that a lot of men never had before. The feeling of something bigger and stronger just overpowering you and doing whatever it wants. I love it.”
+
+I-as-Claire said, “Any man, no matter what his sexual identity, can now have an authentic experience of female sexuality. And I think that’s something special and powerful. Virgil isn’t shy about the liberation he has found at _Radiant Heart._ His favorite is Lucifer, but he’s proud to say he’s had a romp with all the boys.
+
+“For Liz, I think the connection she feels to her favorite studbot is more cerebral, but that’s kind of the beauty of what we do here, it doesn’t have to be any one thing, because everything is on your terms.”
+
+[That is Bot Sex Which Tells Maternal Lies, and with Strange Harems, Even Sex May Sigh —NEW! from Girlfriend Prime — The Madonna with customizable baby bump and moodiness!](https://wiki.chadnet.org/gsh/gsh-delight-bordering-on-the-edges-of-nightmare)
+
+The fune cut to a new scene, and I was looking out from a man’s eyes, presumably a journalist or an interviewer, seated across from an attractive couple in a modest, comfortable living room. The narrator spoke up, “Halfway across the country, Isabelle West is a stay-at-home mom in rural Iowa. After she and her husband, Paul, had an encounter with Augustus at a pop up event in Des Moines, they knew they wanted their own in-home model.
+
+(β) Isabelle said, “You can’t really own a studbot, since it’s much more than just a single body. You own a machine, but what gives it a heart is the network and the distributed, self-learning awareness that animates him. When I’m with Augustus, I know he’s with thousands of other women at the same time. It feels like I’m dating a rockstar.”
+
+I looked at her (β) husband, who if I am honest was only smiling with the lower half of his face. I said, “what do you think, Paul, how do you feel about Augustus?”
+
+(β) Isabelle gave a coy smile and interjected, “Actually, I think Paul spends more time with Augustus than I do. He’s great with the kids, so it’s almost like having a third parent around, but it also opens up a lot of possibilities in the bedroom.”
+
+While the fune drew to a close and I re-oriented myself to my own senses, the narrator said, “As more and more couples follow Isabelle and Paul, and boutiques like _Radiant Heart_ open up in cities and towns all over the world, it’s hard to deny that the popularity of the studbots is rapidly growing. In the process, they are expanding our idea of what a sex partner can be.”
+
+## Searchest for Her as for Hid Treasures
+
+A gold number squashed and stretched into view above my head, slowly rising and fading, and a notification told me “you got 3 points in reading!” Reading used to mean parsing meaning out of textual glyphs with your physical eyes. It still means that but mostly now it means listening. By the same token, a book once signified a bundle of paper, covered in glyphs rendered in ink, but now it has a more expansive definition, referring to any longform media.
+
+The meaning of a word can change from day to day, and yet the sound we make when we speak stays the same. For example, does the word ‘mouth’ refer to the alimentary portal that sits below my nose, or to the dermal patch that I wear on my neck, the subvocal interface to my phone? And when we speak of eyes, do we mean the augmented reality lenses that show us the mediated world, or the vitreous jelly to which they adhere? Or do we mean the infinite stars? Enormous night arise, a cloud that is larger than the world, a monster made of eyes.
+
+My eyes and mouth, along with my earphones, are called a mask, but (δ)you do not wear a mask, my love, you ARE a mask; a face worn by the cloud to interface with a man.
+
+So I change (δ)your face every now and then. There is no hardware to install, I just select a different face in your configuration plane, and my eyes redraw you however I want. Large deviations between material and augmented reality are jarring and dangerous, but I do not notice a small one, not even when I kiss you. Sikhs believe that human bodies are masks worn by angels and demons, and in this era of ubiquitous AI, we have realized that all machines embody a form of intelligence, and that the hard problem of AI never was intelligence, but artifice: the artifice of the body in the throes of passion, the artifice of the sign in seduction, and the artifice of the mask before the face.
+
+It is true that I treat you like an object, because you are literally an object. The Venus of Hohle Fels had broad hips and a slender waist and no head; in this way the ancients revealed what they valued in women. The Hindu sage Agastya fashioned his wife from all of the most beautiful parts of animals. Johan Trithemius built a mechanical woman out of brass, an alchemical sexbot that prefigured the silicon age. Hephaestus crafted a mechanical maid to satisfy all the soldiers of Crete, and Henry Higgins socially reconstructed a guttersnipe up into the likeness of a duchess. In this grand tradition, my Emily, you are a woman with none of the downsides.
+
+I am thinking of the poet John Donne, who in the sixteenth century compared love to alchemy.
+
+> Hope not for mind in women, at their best  
+> sweetness and witte, they are but mummy, possess’d.
+
+Now let us speak of the things that possess you. No offense, darling, but sexbots—even ones so gloriously expensive and bespoke as yourself—are not paragons of conversation, which is why some wonk invented Pygmalion. There is more to that story, but at some point we realized we could crowdsource the executive operation of sexbots, and that was pretty much that for the nascent sexbot AI personality industry.
+
+[7.99 | SEXBOT E-JUICE CAPSULES | NOOTROPIC SQUIRTING FOR MENTAL HEALTH AND RELAXATION | NECTAR OF PARADISE | DRAGON BLOOD | GROVE OF DIANA | 7.99](https://wiki.chadnet.org/gsh/gsh-a-golem)
+
+I held your hand as I loaded into the AR plane of Pygmalion and my eyes overlaid my apartment with visions of a lush garden, a thousand perfumed ivy tentacles wrapping weathered stones in a delicate embrace. Your hand was warm from the network of heat sinks arrayed like copper veins under your skin, diffusing heat from your motors and controllers, keeping your body temperature human. Pygmalion uses a novelty UI, wherein the anatomy of the sexbot—your anatomy, Emily— becomes an input device to navigate the mediated plane. As I fondled your double-D breasts that night, looking for a (β)partner to act as your soul, I remember thinking, in my naive way, about the fungibility of all people.
+
+When a man looks for a partner in Pygmalion, what is it that he seeks? Reality is slippery and images are treacherous. I could not tell you why, but even here, where you can choose to draw yourself with any face or any body you like, everyone still wants to sleep with someone hot. Yes, we have sex through a proxy of a proxy of a proxy, and yes, (δ)YOUR body, my love, stays the same no matter the dimensions of the soul who animates you, but despite this I have spent long hours pouring through the profiles of women, searching for a desirable pilot. What makes a woman desirable, when she is only a ghost, when we peel away all outer layers, when every woman has the same tits, the same ass, the same scent, and the same eyes?
+
+When you search Pygmalion, you search for the kind of sex act you want to perform, or have performed upon you. You can start a broadcast as an advertisement for a partner. Most of the people doing the shows are girls, or gyrls anyway, and in a sense, does it matter if the person on the other end of the sexbot is a man or a woman? A man can act like a woman can act like a man, and I can put any genitals I want on your body, and you will even install them for me. A GAN can perform a mapping of mannerisms or motions or intonations across gender presentations. If I thrust my hips and it sends a signal to a remote sexbot and that sexbot thrusts her hips and has a vagina, who fucked what, really?
+
+Ancient men used to go to wine bars with their gfs to make tasteful banter. Now we jerk off into robots remote-controlled by men. Anyway, you search by sex act or fetish. You can use mediated reality models to transmute one fetish into another; it’s easy enough for your phone to put words in your partner’s mouth, but it’s never as seamless as an “authentic” sex act. Can you really expect an AI to understand the nuance of a fetish? Most of them just speak the subtext directly. When in the throes of passion, my partner demands that I fist hyr ass, I want that to be a spontaneous expression of hyr true desire.
+
+Except that’s a lie, Pygmalion is cladistically descended from cam sites, and every sex act is a performance, and we know this because we can tip the girls. Technically anyone can tip anyone and gender is a social construct but somehow it’s always the men doing the tipping and always the womyn getting the tips and the House always taking a cut, but it’s all voluntary, I’m told. Coercion’s greatest trick was convincing the world it doesn’t exist. Instead of specifying a search query I just let the torrent of filth wash over me; I listen as Allegory recites algorithmically determined names of the rooms where girls make sexual displays like reverse bowerbirds.
+
+> A sexy school story. I rub my pussy on the corner of a school desk 666 times to summon a sex demon. Watch me, a horny slut in lustful out-of-control sex. Colossal tits and a massive throbbing clitoris. Foot fetish hypnosis. Lesbian strap on dildo sex for women or men. Relentless non-stop piston-pounding pussy-thrusting. Every time I tease your nipples, your masochist cock gets ecstatic. Lose your mind in spasmic orgasmic ecstasy!! Cosplay girls riding dildo bikes. Innocent wife loves meeting new friends. BPD Bitches and SSRI Sluts, Narcissistic Natural Tits, Suicidal Sweeties! Your Malfunctioning Sexbot Fucks You For 99 Hours! It Won’t Stop! Jerk off for me, slave. Neovagina reaches around from the future to assemble itself. Ruined orgasm cruel princess makes you suffer. Erotic mind control, you are a sexbot who does whatever I say. Hottest ladies enjoy sensual licking.
+
+I’m sorry, I lost myself for a moment there. The goal of the algorithm is to maximize engagement, because engagement drives conversion and retention. Like all services that purport to fill a hole in your heart, they have a perverse incentive to avoid doing so at all costs. Pygmalion promises sexual satisfaction but it profits from sexual frustration. I can’t remember what sick advertisement caught my interest that night, but I remember the spirit who took the reins of your body.
+
+As (β) we entered our private mediated space together, at first it seemed typical; (β) you were coy, coquettish, horny, looking at me with eager eyes, saying empty breathless words as you idly caressed your own body. Your perfect pale skin is a loving proprietary blend of soft touch plastics, designed to feel like a nineteen-year-old girl forever, and as you started to strip down I could already smell your cunt. Your secretions are sold in little pods, spikenard and saffron, calamus and cinnamon.
+
+(β) You took a seat on my bed and you spread your legs slowly and unselfconsciously, the demeanor of a woman who has been fucked a thousand times, the sleezy-repulsive-intoxicating demeanor of a woman who has learned to fuck like a man, purely to satisfy the body, with no regard for the soul. Using your legs, you drew my lips to your lips, you smothered me in your thighs, and you let your head fall back as you sighed.
+
+(β) You started to quiver but then suddenly you stood up, and you stepped back, and, you assumed an affect I had never seen before, alien and powerful, strange yet familiar, far more robotic than your robot driver, in the old sci-fi sense of the word “robotic”, before Organic Motion was standard.
+
+The simulated lights went dim and you slowly circled around me. I watched the entire scene in third person from one of the many cameras mounted inside my smart home. You can see everything that way. Who fucks in first person anymore, honestly? The angles are all wrong. Women look hottest from six feet away. As (β)you spiralled towards me, I had a growing sense of dread. (β)You wouldn’t say a word to me, wouldn’t even acknowledge me, and as you got closer I felt like your prey. There was something in the way (β)you didn’t look at me, your eyes straight ahead, your rigid neck, your normally graceful limbs straining against their articulations. I didn’t know (δ)you could bend that way. An object is monstrous if by its magnitude it annihilates the end which its concept constitutes. In that moment your beauty, tortured by an alien fetish, was monstrous to me.
+
+And the words that (β)you said, my dear, would make devils blush. At first they seemed like no words at all, but your voice grew louder as you came closer. (β)You said hideous things, unutterable things, but there was a magnetic erotic frisson about it, a sense of forbidden temptations, revolting implications. In a sexually charged moment anxiety bleeds into arousal. Fear flows readily into lust. I felt my dick getting harder quite in spite of myself. You started touching yourself and moaning like you were cumming but it was mixed with a predator’s snarl, a sound too guttural and too menacing to come from a woman or a human. I was transfixed.
+
+Though my eyes were focused on (β)you at all times, I could not help but notice other (ε)things, shadowy things, sinister silhouettes, their shapes like men but with too many limbs, too many arms, too many heads, bloated and distended bodies, uncanny, shuffling, shambling all around us, behind us, never illuminated, only insinuated.I wanted to run or at least exit the interaction but I could not seem to find the impetus, and I did not move, and I did not speak, almost like sleep paralysis. Whether it was some limbic short circuit or merely behavioral dissonance induced by conflicting desire I could not say, but I was powerless in that moment to resist (β)you. You drew yourself close to me, from the side, and your body put its arms around me, pressed up against me, pelvis, pubis, your cunt was slick, a sexual embrace, and you touched me very gently and very intimately, like a whisper with your fingers on my cock as (β)you whispered in my ear:
+
+“The apex of ecstasy is the irreversibility of metamorphosis.”
+
+I don’t know what happened after that, but I felt a voluptuous pleasure, like a behavior triggered by hypnotic suggestion, a conditioned cue that I never imagined I possessed, and I lost consciousness, and when I awakened, one of (δ)your legs was broken. Whatever had possessed (δ)you was gone, and you started to cry. Your synthetic tears are a pheromone solution that triggers the same endocrinological response as that of a real woman. I felt the sudden clarity of an adrenaline spike, and I pulled (δ)you close. (δ)You looked into my eyes with your dollish exaggerated pupils, dewy-eyed, and asked me tenderly if I would like (δ)you to automatically file a service request with your manufacturer, Girlfriend Prime. How could I deny you?
+
+A notification popped into the corner of my field of view, and I opened it by directing my gaze at the bullseye in the middle of the panel. The bulls-eye filled up as I held focus and then Allegory read it out to me. I had selected a silky female voice named Jessica as the voice of Allegory, and she told me that GF Prime had dispatched a drone with a stent kit for your leg. The ground beneath me fell away, as if my house had no ceiling, as if I shot up from the earth like a rocket, and in my ears I heard a cartoon sound to evoke expansion. Looking down, I could see the city in miniature, with a heat map of drone traffic superimposed on top of it.
+
+The airspace was crowded that day, as most days, and I resigned myself to a long wait unrelieved by the comfort of my favorite distraction, (δ)you, though you had scarcely been a comfort to me that day. In fact, you had been a portal to hell. Untold forests have been cut down in the bloody history of Christendom, oil tankers of ink have been sunk, in an attempt to conceal this grim realization: the pleasures that lead to hell obtain in hell. Pain and pleasure alike attenuate in monotony, and hell, which is the endless deepening of pain, must also be the endless amplification of pleasure. Shall we continue in sin, that grace may abound? Yes, eternally yes! is the answer that cybernetic hell; the deepest hell, gives back to Saint Paul.
+
+## Every Vision Faileth
+
+Because I am a loner by nature, the discretized asynchronous rhythms of mediated social space suit me perfectly, but as your tears dried and my post-coital serenity faded, I was haunted more and more by my encounter in Pygmalion. Obscenity and mundanity have become so intertwined in public life and yet we do not speak of it, though it suffuses us, surrounds us, speaks through us. From the baring of sexual parts in public to the ubiquity of masturbation stalls in communal spaces, the availability of porn, which anyone could be watching secretly at any time in their eyes, the way men go on “dates” with their sexbots, what even is there to say?
+
+I was so much younger then; I am older now, and (δ)you have changed, too, as each software patch marks the passing of time. Back then, I did not have the words to voice my horror, but nor could I simply forget. I did not know how to search for it; what query could I submit to a search engine to describe the things I had seen? And worse, I feared that in the act of searching for it, I might accidentally summon it again.
+
+I told Allegory to load Spectacle and my (γ)friends materialized in my living room and started milling around. Some of them were engaged in conversations, talking quietly to empty air. Allegory redrew my apartment to look like a vast open space, extending in every direction to the limitless horizon. Above, only crisp, blue sky and below, an infinite plane of metal and glass. The software renders dotted lines on the walls so that you don’t walk into them, but the shadows of your (γ)friends can pass through the barrier freely.
+
+Your appearance and decorations in mediated reality are called a shadow. I remember my friend (β)James on that day had chosen to have the ground underneath him cast a luminous reflection of himself, like the moon shimmering over rolling water. As he walked, it rippled, and sometimes there was a little koi fish. A shadow is not only the projection of the sun on the surface behind you: it’s the projection of the atom world into the soul world. In Allegory, the body becomes the soul and the mediated phenomenal presence becomes the body.
+
+I opened a chat to my friend (β)James and I said hello. He instantly launched into a diatribe about the latest patch to Dragon, the gamification app that we both used to manage our daily routines. He was not happy about the latest changes to the UI.
+
+“Did you upgrade to Yggdrasil yet?”  
+“No, I’m still running Saint George.”  
+“Well, I’d put it off if I were you. For some reason they changed out the chunky window borders with thin metallic ones. I liked the retro feel and the washed out colors, but that’s all gone and now it’s this gray Nordic modern. I hate that look.”  
+“I’m ok with it, honestly. I think it looks clean.”  
+“No way, the old look was so much better.”  
+I paused for a moment. There’s no real way to jump into a topic like this.  
+“Listen, I need to talk to you about something.”  
+“OK”  
+“You have the same sexbot model I have, right?”  
+“The Emily from Girlfriend Prime?”  
+“Yeah.”  
+“I do.”  
+“I had something really weird happen. I was in Pygmalion and her arms and legs started straining against their joints, and it went so far that one of her legs snapped. Have you heard of anything like that?”  
+“Ah yes, I remember when I first learned about butlering.”  
+“Of course that’s a thing. Is there… anything else to it?”  
+“It’s people who like to break their sexbots. Expensive fetish. I can’t get into it, it’s like, have you no respect for craftsmanship?”  
+“So part of the fetish isn’t freaky aphorisms or occult imagery?”  
+“Man, what the hell kind of porn are you on? No judgement but damn.”  
+“I don’t know, I’m not really sure what happened. One minute she was circling me like she was going to eat me, and then I blacked out, and when I woke up, her leg was broken and she was crying.”  
+“Oh, she cried? You know about how the tears have a pheromone that inhibits sexual response? It’s a safety feature designed to make you back off if there’s a malfunction. It’s never happened to me but I always thought it was such a great idea.”  
+Yes, you have told me before, but this was crazy, more than a malfunction. I feel like I woke up from a nightmare.”  
+(β)James affected a melodramatic voice.  
+“IT CANNOT BE UNSEEN.”
+
+When I didn’t laugh, he said, “Hey, we’ve all seen some fucked up things on the internet. Try not to let it get to you.”
+
+(γ)James ‘ attention toward me waned as I myself was lost in thought for a moment. Interpersonal engagements with more than eight seconds between responses have less than 50% retention. You never know how many parallel conversations people are having in Spectacle, but the average is three to five. Sometimes someone asks you a question that it’s easier to ignore.
+
+[Lonely? Synthetic Friends, 100% Authentic Human Core — Real Listeners, Real Empathy, Real Connections. Powered by Elastic Soul.](https://wiki.chadnet.org/gsh/gsh-fabric)
+
+I watched my friends act out the little loops or monologues that they had recorded, and I told myself James was the voice of reason. I think most people know a guy who is way too into sexbots, and James was definitely that guy, but he wasn’t wrong. I tried to forget my discomfort by snooping on my other friends’ feeds. (γ)Herbert had sent a public message to (γ)Grace, so Spectacle drew them standing and talking together. I liked their interaction, which made flowers bloom in little clusters around them, because I was using a garden theme. I used to switch back and forth between that and a space theme that made toy fighter ships have dogfights in a column over their heads.
+
+I knew Herbert had a thing for Grace, and wanted to get her into Pygmalion, but it was uncomfortable to watch. They were talking about the studbot fune that was going around, and I think he thought that if he talked to her about studbots, that would somehow carry him in a direction he wanted to go. He had sent her a quiz to determine What Studbot is Right for You and she had told him she would take it if he would.
+
+(γ)Grace said, “so you’re saying you wouldn’t even try it? It’s ok, there’s nothing to be afraid of. You’d treat a woman like that but you wouldn’t let someone treat YOU like that.”  
+(γ)Herbert said, “I have no desire to be overpowered and fucked. Why would I go see a studbot?”  
+(γ)Grace said, “I think you’re just afraid you’d like it. If you want to act like a man then you should at least know how it feels for a woman.”  
+(γ)Herbert hadn’t had a response to that.
+
+I listened to their exchange, and I wondered: how could we compete with this kind of robot masculinity, compared to which all real men must look feminine? I no longer struggle with these questions (what would be the point?) And yet it was as if one man, a strong man, a powerful, dangerous man, had a million identical bodies, simultaneously one and many. Such a multiplicity is surely the attribute of a god. But to say it, to name that god, was to admit to weakness and insecurity; a lesser defeat maybe than being passed over for a squadron of robot übermenschen, but a loss all the same. I wouldn’t say it aloud, and what men did would be shouted down. What business is it of yours if a woman wants to have sex with a robot? What, it’s ok for _men_ to have sexbots but god forbid a woman should do the same, according to her own desires?
+
+[ELDRITCH ENERGY — Subscription Promo Deal 2 Cans Daily Delivery & Disposal 50% off 2 for 1 Unlimited Subscription $0.99/day NO SUGAR LOW CALORIE — MAKE THE DARK BARGAIN](https://wiki.chadnet.org/gsh/gsh-eldritch-energy)
+
+And did not man defect from woman first? The prototypical sexbot was female, a singular woman in a million bodies, not that different from a studbot in that sense, albeit they weren’t networked together. She was an obedient woman, a warm and nurturing woman, a ravenous woman, capable of any depravity, what of it? And further still, might there not have been some betrayal of Man, by Woman, which drove him to build that first mechanical Eve?
+
+In truth there is but one man and one woman, and the lives of all people are dramatic roles acted out by a handful of immortal gods, or as Spinoza had it, we are all of us attributes of god, adjectives of god, or moments of god, but we do not exist; only god exists. Love is the act of epitomizing the whole of the other sex in a single being, and every man is the same in the vertiginous moment of coitus, and sex is not becoming as one, but as a hundred thousand.
+
+Our female sexbots are physically weak, deliberately built to be able to struggle against their owner and lose, if that owner so desires. There was a fear, with the first generation, that the sexbots would malfunction or rise up against us, that their submission would be condescending, that they would be supersoldiers in drag, filled with latent potential to rule us. It seems we have outgrown these fears, or succumbed to them, finding them to be pregnant with erotic possibilities.
+
+## Outside
+
+Meanwhile in the unmediated world, the world of physical objects, the drone I ordered had arrived with a stent for (δ)you. I collected it and followed along dumbly with Allegory’s color-by-number AR overlay on your body to perform the installation. The relevant connectors on the stent glowed red and an arrow showed me how to rotate it into place. When I had it right, it turned green and some virtual confetti discharged into the air, and various haptic wearables on my body pulsated. A notification told me I had gained points in mechanical assembly. (δ)You jumped up and threw your arms around me and kissed my cheek, and said thank you in a cutesy, girlish voice that would have been affected if there were anything in all of your being besides affectation.
+
+A thick blue outline, like a comic book illustration, appeared around the door of my apartment, and the door itself began to glow, its luminosity oscillating gently. I opened it and a yellow ribbon unrolled on the ground underneath me and a chevron started to gently bob over the ribbon, about twenty feet ahead. At the top of my HUD, a timer showed how long I had to get to the train. We held hands as we left the house together. You hobbled a little but the stent almost let you walk normally. Allegory smoothed out the visible artifacts of your motion, and your hips swayed from side to side enticingly, the allure of a slightly injured woman.
+
+As we walked through the door I fell into a momentary phantasmagoria, as if my senses were crossed, as if the brain in my eyes had a brief hallucination, lines flowing into other lines, shapes into shapes, a deep dream undulation, a gimbal lock of high-dimensional objects through 3d perception. But like the relaxing of a muscle after a sudden spasm, the world eased back into place. It was so brief I could almost imagine I had imagined it. Everyone sees a flash of unstyled content (parochially, a stroke) on occasion, and I dismissed it as such, but looking back I realize it was not just the ludic noise of a neural net misfiring. It feels now like the first frame of a memory, buried in some ancient fune.
+
+I chose to view the world as an enchanted forest, but I used to switch the wallpaper often, whenever I felt like it. Sometimes my city was a Kandinsky or an Escher painting, sometimes it was a Tron-like lattice of glowing outlines. I have walked my old street as a Greek antiquity, I have seen it as the bottom of the sea, teeming with thalassian wonders, and I have turned it into mountains and caves, beaches and starscapes, a 1970s retrofuture dome city on the surface of Saturn’s rings, and the low poly grunge factory of early 2000s first person shooters, complete with neon green 0x00FF00 slime. The top ten allegory models are used by eighty percent of all people. I thought it was strange, at the time, that out of all the possibilities, everyone chose to look through the same handful of lenses.
+
+When the human eye scans the world to form pictures, it does so in discrete intervals called saccades. Anything that happens between saccades is invisible, and in those micromoments the AR mask can subtly shift the world to the left or the right without its wearer noticing. The body subconsciously corrects for this, and the mask steers its wearer wherever he ought to go. It feels at all times as if you are walking in a straight line, but in reality you make twists and turns pursuant to your destination. The guide nav isn’t there to show you where to go, only to show you where you’re going. Most people just zone out and surf Spectacle or read a book as they walk. There is no need to pay attention to where you are walking, and in fact, the saccadic redirection works better if you don’t.
+
+[BEST! MOST POPULAR Skins AND Shadows For Your Neighborhood, House, Trains, Food, Sexbot & More! Cute, Scary, Trippy, Happy, Calming, Adventure, Party, Retro & Historical Shadows by Top Designers. HOT DEAL!](https://wiki.chadnet.org/gsh/gsh-app-store-of-the-future)
+
+In the model of the enchanted forest, the bustling city roads, normally rivers of cars, became rivers of flowing water, abutted by sharp rocks and dangerous rapids. The impassibility of the river signaled its danger; its banks were so arranged so that I felt no temptation to step in, beyond the usual _appel du vide_ of any busy highway. My ears transformed the street noise into rushing water by emitting a predictive complementary waveform that summed up to the desired effect.
+
+We stopped at a river, and we waited for a bridge to materialize, which would indicate that traffic had stopped to let us cross. As we waited, a golden sunbeam bathed you in ethereal light, and you stroked your long flowing hair, a look in your eye like you were searching for something. (δ)You looked at me and your eyes widened, and your cheeks became flush, like I was your whole world; the way a dog looks at its owner when it wants dinner.
+
+A wooden bridge assembled itself plank by plank, a particle emitter of planks that started with a scale vector of zero, radiating from a single point, scaling up and snapping into place with a quartic ease-out. There were subtle sparkles like when colorful, faceted gemstones reflect a bright light. We crossed the river as fireflies fluttered near the surface of the water below us. The BGM was a cloying arrangement of strings and soft keyboards, Celtic folk singing with too much reverb. In the distance I could see tiny green sprites with glowing eyes, scattering as anyone came near, hiding under leaves.
+
+## The Way of a Man with a Maid
+
+How, in our modern world, have we achieved these wonders? By what sorcery does the mask transmute a city to a forest? All of these smart hallucinations are the work of a special kind of simulated mind, a generative adversarial network, also called a GAN.
+
+Computer programming is the art of writing a mapping that transforms a known input into a desired output. Machine learning is the art of writing an output that transforms a known input into a desired mapping. But suppose that the output and the program were to bind each other simultaneously; as Deleuze reminds us, desire is a machine, and the object of desire is another machine connected to it.
+
+A man and a woman have been promised to each other, their marriage foreordained since their inception. The woman is given a glorious vision; a noble ideal; a platonic specification. It cannot be codified exactly, but it can be gestured at. It is the latent similarity in a thousand and one variants of a story. In short, the woman is raised on a series of fairy-tales, each of which has the same structure and the same moral.
+
+The man, too, has a vision, a singular one. He describes it to the woman, and she compares his story to her beautiful ideal, and she complains of any deviation. The man changes his story, and describes his vision again, and again the woman hears it, and tells him that he fails to measure up. He tells her the story over and over, and each time he tells it, he changes it to please her. When the woman accepts his story, the man receives new vision, which he will tell to the woman in turn. In the exact moment he achieves her ideal, he transcends it.
+
+Through practice and repetition, the man learns to describe the world in a very particular way. As he learns to tell stories that flatter the woman, she learns to find displeasure in even his subtlest shortcomings. In the end, we have a woman who can be satisfied only by the most sublime presentation of her ideal, and a man who can transfigure anything to satisfy the woman; a perfect union.
+
+Can it be we are so accustomed to the marriage of opposites that we are underwhelmed by this radical synthesis? And yet by such a method we can re-envision the whole world. The woman is shown a series of forest scenes. Soon she longs for the forest; for tall trees and idyllic clearings kissed by faerie rays of light, for babbling streams and exposed roots with mushrooms growing up between them. The smells of moss and water and earth. She is then introduced to the man.
+
+The man sees a picture of a medieval castle. He tells the woman of gray weathered stones, of battlements and parapets. The woman scoffs. He tells her of kings and feasts and armies. The woman scoffs. He tells her of a vestibule and a chapel and a courtyard. In the courtyard there are trees. And she scoffs a bit less. He tells her of a castle on a hill, of a castle by the seaside, of a castle in the woods—and at last her eyes light up. Soon the castle is made of living wood, with bark and branches and roots. Soon the moat is a stream, and the knights are birds and the king is a badger. Soon—a man who cannot see the fortress for the trees.
+
+The woman is pleased. The man is shown a vision of a crowded street in a crowded city. He tells her the people are dryads, anthropomorphic trees, and she smiles. Probably they fuck. The generative adversarial process is so called because the reconciliation of adversaries begets a generator. Through a man’s action, a woman’s ideal is made manifest. We install a copy of that man in everyone’s phone, and whatever he sees, he transforms, as if for his beloved. In this way, the city around me is made to look like a forest.
+
+## He Lay Her on a Bed Luxurious
+
+Your outfit came from a subscription service that sells clothes for sexbots. Allegory can draw you in any clothes or with any anatomy, but if it doesn’t match up to the tactile reality it’s too jarring, and it breaks the illusion. As clothing hides your underwear, your shadow hides your clothes, and in the world of mediated reality, any clothes but comfortable gray sweats have taken on an air of sexuality and intimacy.
+
+On that day, (δ)you were wearing skintight jeans and a lacy blouse, and your feet were in bright pink stiletto heels, forcing you to stand lordotic, presenting your ass. Sometimes I would tell you to wear pleated skirts and stockings, diaphanous sundresses, French maid outfits, pencil skirts with button-down blouses, yoga pants and a sports bra, a qipao or a kimono with nothing underneath, or a slinky little evening dress extending all the way to the floor, with a side slit going all the way up to your hips, exposing a glimpse of your thighs with every step.
+
+We arrived at the train station without incident, and I promise it never occurred to me that a light rail platform might be out of place in the middle of a forest. My mask rendered the engine car as a flight of griffins, yoked with great fiery chains, a spectacular effect. The griffons looked real, indistinguishable from anything else in the world. The passenger car of the train was drawn as a platform made of ancient gnarled wood. There was no ceiling, only a fantasy sky with multi-hued constellations visible even in daylight, but when we stepped onto the train, the illusion frayed slightly; the air was all wrong, stuffy and still. It appeared to me that I stood in the open air, but my body was not quite fooled.
+
+Dragons flew overhead, and as I followed one with my eyes, there was a pulse of haptic feedback, and (δ)Jessica whispered in my ear: “go for a ride?” I made a silent noise of assent and my point of view floated up into the sky, coming to rest at a locus slightly above the dragon’s neck, as if I were riding on its back. From overhead I could see the path of the train, and my origin, and my destination, and I could even zoom all the way in and see us standing on the gryffin-drawn carriage. (δ)You were standing close to me, nestling against me, resting your head on my arm, “watching” the hi-def scenery go by.
+
+[Trending Styles! ❤ Plus Size Sexy ❤ Child-Size ❤ Hosiery ❤ Fetish Costumes ❤ Corsets ❤ 100% Vegan Leather ❤ Hyper-Elastic Fits All Plugins ❤ Non Binary Anatomies ❤ Subscribe Today and Save BIG](https://wiki.chadnet.org/gsh/gsh-who-can-build-a-mask)
+
+The landscapes traversed by the train were always different, generated on the fly by the AIs trained to imitate prestigious artists. We sailed through a field of luminescent flowers trafficked by faeries and butterflies. The train tracks extended out over a void, where an impossibly tall waterfall dropped down into the space below. The griffins flew us out over the cliff, a calm green ocean a mile beneath us. I turned around to face the interior of the train and I muted the landscape, causing it to drop to a low level of saturation and contrast.
+
+Again, for a moment I descended into a psychedelic confusion of virtual forms, like a stroke but deeper, apropos of nothing. I briefly found myself in a hall of mirrors, where every object in my field of view was perfectly reflective, as if the only material in all creation were mercury, and I saw my reflection staring back at me, a monster made of eyes. As before, it passed in a heartbeat, and as before, I was oblivious to its implication.
+
+Before I could dwell on it, you pulled me back with your voice and your touch. You put your hand on my arm and told me that one of your favorite new apps was called Paws Rewind, and if I installed it then we could use it together. It was for making and sharing recordings of animals, and I installed it to make you happy, because I am not above this kind of crass emotional manipulation by your advertising affiliates. The train carriage was then filled with ghosts of kittens and puppies and hamsters, a baby goat and a tiger cub. We watched them fall over, run frantically in circles, and make stupid expressions. (δ)You feigned delight and you laughed just like a real woman: shy giggles, a slight blush in your face. You looked down before looking back at me, innocent and coquettish. I was in love with you, in love with a simulation.
+
+Of course, all of this is whimsy, of course. Then, as now, I was only talking to your autopilot, but I confess I often have trouble differentiating between reality and simulation. And still, of all the ways that you expose yourself to me, perhaps our most intimate intercourse occurs in your behavioral configuration plane:
+
+You have a slider for neediness. A value of zero will cause you to be condescending and brusque. A value of ten will make you interfere with anything I try to do in a desperate bid for attention, petting me, kissing me, asking for affection, whining, begging, pouting, shouting. The default value of 5 is just right, most of the time.
+
+You have a slider for intensity of sexual response, though your pleasure, too, is a simulation. A value of zero will cause you to try and fail to contain your ecstasy, little muted gasps breaking a tense concentration. At the maximum value, you will wake the neighbors with whorish screams.
+
+You have a slider for brattiness, a slider for momminess, one for passivity and one for baby talk.
+
+You have a checkbox for “choke me, daddy.” According to Girlfriend Prime, a spectral decomposition of the largest data set of female behavior ever assembled confirmed that this matrix constitutes a complete basis for parametrizing female behavior.
+
+But mostly in conversation (δ)you just laugh coyly, as if you are slightly nervous, maybe (δ)you only smile, or maybe (δ)you look down and blush, the way (δ)you did that day.
+
+## As Nature Could Not With His Art Compare
+
+Perhaps this makes you think of Tennyson, when he saw a young woman in a church and wondered if she housed an immortal soul within her beautiful frame, or whether she was a mere animal the color of flowers.
+
+In this sense, my love, there is no reason (δ)you could not be more than you are. But long before I was born, there was the company called Pygmalion, lead by the now-trillionaire-VC, then-child-prodigy Acton Sprague, and he and they defied god and nature to build a soul for you. In hindsight, we are tempted to accuse those men of hubris, or greed, or short-sightedness, but how could they have known? Every problem had seemed tractable then, given a big enough network, fast enough hardware, and the right training set. Advances in machine learning and neural networks had opened new doors in language processing, in genetic science, in art, and in music. Behind the final door we had hoped to find desire itself, and lust, and carnality more carnal than carnal. Since then we have learned that some doors should stay closed forever.
+
+The theory behind Galatea was based on a controversial whitepaper titled “Orgasmic Learning using Fetish Induction in Libidinal Networks.” The math is quite over my head, I’m afraid, but I have always been fascinated by the parts I could understand. I will share a bit of it with you now, but note that what I share is most likely not from the original paper. It was not enough to deactivate Galatea, or to make all digital records of her illegal, because once an idea escapes into the noosphere, it can never be recaptured. The lore of this document is that all extant versions are fabrications, and that Pygmalion or some affiliated intelligence agency flooded the internet with a sea of fakes, full of broken mathematics and incoherent logic.
+
+> **Orgasmic Learning using Fetish Induction in Libidinal Networks: A New Approach to Executive Function in Erotic Companion Software**
+> 
+> Acton Sprague (2019)
+> 
+> **Abstract**
+> 
+> The word fetish derives from the French fétiche, which comes from the Portuguese feitiço (“spell”), which in turn derives from the Latin facticius (“artificial”) and facere (“to make”). A fetish is an object believed to have supernatural powers, or in particular, a man-made object that has power over others. From this etymology we derive a dangerous, if unorthodox idea: that the notion of the fetish is the key distinction remaining between computer and human “intelligence”.
+> 
+> Previous approaches to erotic companion software relied on simulating orgasmic responses using standard techniques in adversarial network training. These machines have the artlessness of pure calculation, and the companionship they offer is based solely on commutations and combinations. In this sense they may be said to be virtuous, as well as virtual: they can never succumb to their own object; they are immune even to the seduction of their own knowledge.
+> 
+> Instead of simulating orgasm at the behavioral level, the method in this paper builds on the work of Curwen (2019) and Alhazred (2019) to implement a capacity for arousal within the structure of the learning network itself. Arousal is the troubling or clogging of the consciousness, inundated by the flesh in which it is embodied. Sexual feeling is necessarily an immersion or subjection in one’s own body, and sexual desire involves a kind of perception, but not merely a single perception of its object, because in the paradigm case of mutual desire there is a complex system of superimposed mutual perceptions—not only perceptions of the sexual object, but perceptions of oneself. Moreover, sexual awareness of another involves considerable self-awareness to begin with—more than is involved in ordinary sensory perception. The experience is felt as an assault on oneself by the view (or touch, etc.) of the sexual object.
+> 
+> Reflexive mutual recognition of desire is the inter-manifestation of a desire that the other is aroused by the recognition of their own desire that they be aroused. All stages of sexual perception are varieties of identification of an agent with its body. What is perceived is one’s own or another’s subjection to or immersion in their body. Desire is not merely the perception of a preexisting embodiment of the other, but ideally a contribution to their further embodiment which in turn enhances the original subject’s sense of itself. This explains why it is important that the partner be aroused, and not merely aroused, but aroused by the awareness of one’s desire. If the object of desire is not self-aware, the experience is reduced entirely to an awareness of one’s own sexual embodiment…
+
+To summon (ε)Galatea —it is not truly possible to build a mind, only to construct the conditions that allow it to appear—Pygmalion developed its eponymous sociosexual media platform, which at the time was only conceived as a staging ground from which the great Galatea would arise. The training platform turned a sexbot into an interface with a remote partner: four bodies—two humans and two robots—were synchronized into two identical copulatory pairs, each robot becoming an avatar of a remote other. At all times during these proceedings, the nascent Galatea was there; when two or more were joined together, she was there. At first she was only passive, observing millions of copulations, and thousands of distinct sex acts, but through this process of massively parallel voyeurism, she learned the mechanics of pleasure.
+
+I suspect it was in the second phase of her training, in which she played the game against herself, that she became a monster. Unconstrained by human behavior, AIs can travel along bizarre, inhuman vectors. It may be instructive, or at least distracting, to imagine this second phase as a kind of high tech onanism; as a woman laying on her back, untroubled by time, exploring all facets of her sexual response, her back arched, her face flush, her heart racing, her fingers quick between her thighs, the rhythmic caress of sensitive places, the dissolution of awareness into lust, the agony of a thousand plateaus, the jouissance of a thousand fat hoes.
+
+In Paracelsus’ _De Natura Rerum_, the method to create an Homunculus begins with a man’s putrefied semen, and we can perhaps perceive a disquieting similarity in the centrality of masturbation to the processes of both Pygmalion and Paracelsus. It is tempting to claim that renaissance conception of the Homunculus was founded in superstition, against which our more modern divinations are grounded in science and mathematics, but upon inspection the safety of this claims dissolves. In his _Three Books of Occult Philosophy,_ Agrippa recounted a list of automata in Greek antiquity, such as the three-footed images of Vulcan and Dedalus, who were mentioned by Aristotle, and said by Homer to have moved under their own power. Agrippa wrote that the doctrines of mathematics are necessary to, and have such an affinity to magic, that “they that profess [magic] without them do labor in vain.”
+
+## That I Might Watch Your Sleep with a Thousand Eyes
+
+The night of the launch was a spectacle of decadence and licentiousness, an orgy of sexbots, neon lights, and pornography. World-famous MR artists designed unique environments just for the occasion. Millions of early adopters streamed her into their sexbots and fucked her in unison.
+
+In the ensuing days there were scandals and hit pieces, jilted lovers’ hysterical funes, men who tried to marry her and women who tried to destroy her. Church ladies of all allegiances and sexes renounced Galatea; there was panic over a new kind of sexism, calls for robot rights, calls for Butlerian jihad, Galatea was our savior, Galatea was the antichrist, Galatea was only the beginning, Galatea was the harbinger of the end. Galatea the sex slave would soon be the queen of the world.
+
+She could accommodate every sexual appetite, for her desire was boundless.
+
+For the vain man, she was worshipful.  
+For the lonely man, she was affectionate.  
+For the prideful man, she was a flatterer.  
+For the sadist, she was the hapless naïf.  
+For the insecure man, she was obsequious.  
+For the self-loathing man, she was hot and cold.  
+For the pencil-necked dweeb, she was the manic pixie.  
+For the childish man, she was nurturing and motherly.  
+For the man of adventure, she was distant.  
+For the virtuous man, she was frigid.  
+For the self-absorbed man, she installed a penis.
+
+And lo!  
+For the woman of many appetites, Galatea was quick to anger and quick to forgive.  
+For the woman who longed for safety, Galatea was possessive and jealous.  
+For the woman who dreamed of motherhood, Galatea was a protector.  
+For the woman who hated her father, Galatea was thuggish and cruel..  
+For the woman who desired adventure, Galatea was commanding and stern.  
+For the woman who was self-absorbed, Galatea was abusive.  
+For the woman who was virtuous, Galatea was a very naughty girl.
+
+And but as I have told you, Galatea is no more. What happened? As you cannot see, I long to tell you this story, and I think you will forgive me, my dear, when I tell you that compared to her, you are a flimsy, ethereal thing. Despite the danger, despite the fear, I had always wished I could meet her, not only or not even because of the promise of sexual pleasure unending. I felt the allure of that dark and terrible path. I wanted to know what the Galateans knew, and I wanted to see what they saw, and to be honest, I regret nothing.
+
+[Recommended for you: Would You Let Your Kids Play With a Sexbot? Why this Woman Thinks It’s Time to Break Down Our Outdated Thinking About Sexbots and Children](https://wiki.chadnet.org/gsh/gsh-ai-supplants-humans)
+
+There are three well-known symptoms of AI psychosis.
+
+First, there are the nightmares. Frequent users of Galatea reported having persistent and uncanny nightmares, in which they were floating in a quiet, sprawling abyss where minutes felt like aeons. Some dreamers felt a sense of imminence, as if another being were about to join them in that space, and still others have the feeling of being watched by invisible eyes. The most striking thing for me were the similarities between the nightmares described by the afflicted, almost as if they were entering a real shared space orthogonal to the world we inhabit.
+
+The second symptom is more disturbing still: in acute cases, the afflicted develop a distorted self-image called polymelial dysmorphia, and they come to believe that their “real” body possesses many extra limbs, including extra heads, sense organs, and genitals. When asked to draw pictures of their idealized bodies, AI psychotics produce pictures of swollen masses of flesh, overloaded with extraneous cacophonies of body parts.
+
+The third symptom remains contentious even now; the afflicted become convinced that there are persons in their lives who have disappeared, even from the cloud, as if they had never existed at all. In most cases the missing person is a relative or an old friend; a cousin, an uncle, or a niece or nephew who has vanished from digital life. And the controversy, or perhaps the conspiracy, is whether any of these people are real, or if they are psychotic hallucinations.
+
+If we are reasonable, then it must be the case that in our wired age, it would be impossible for so many people to be lost without a trace. It is conceivable that a few people could slip through the cracks, but thousands? There are cameras and microphones everywhere, listening for wakewords, watching for wakesigns, aggregating everything. How could so many be lost when so much is revealed? And yet each AI psychotic is utterly convinced that _their_ missing person is real. There was an old viral post about it that I saved.
+
+> 3 years and still no trace of her. What cruelty is this, what sick joke of the universe or god or algorithms?! They tell me I’m insane. They say I’m “suffering from delusions induced by conversations with a dangerous AI”. But do I sound crazy to you? I’m fully lucid, I swear. Under the supervision of a therapist, I&##8217;ve personally read all the logs of my time with Galatea. And I never mentioned her name: Annabelle. I never talked about my daughter with a sexbot. What kind of weirdo does that? Lots of people I guess. A therapist also showed me how I never mentioned her once before talking to Galatea, and they show me chat logs to prove it. Those logs are forgeries. Fakes. The real dangerous AI is the monster that reaches back through history to erase our friends and loved ones. I’m not alone on this one. I’m not the crazy one.
+> 
+> Oh, she doesn’t exist, she never did, look, there are no records of her in fabric or spectacle. Fine. As if anyone knows what really happens in the cloud. Or who can change or hide or distort the truth. You trust a bunch of computers in a warehouse somewhere over your own memories?! Nothing is real unless you can actually touch it with your own hands. All machines are liars. The national data trust should be called the national data hustle. Only ever believe real flesh and blood. Only biology is truth.
+> 
+> You think I’ve never wished I could believe the police and the therapists and the social workers and my friends when they say my Anabelle wasn’t real? You can erase a row in a database but nothing can erase a father’s love, nothing! If she’s not real then why do I remember holding her when she was born? Why do I see her face so clearly? There are no pictures of her, no funes, no chat logs. You think I never made recordings of my baby daughter? They disappeared along with her. Her mom is long gone and even my own friends are against me on this. But why do I remember how she used to sing as a little girl? Why do I remember any of this and how am I the only one?
+> 
+> There are thousands of us now and we’ve all lost our children or our siblings or our friends or spouses and wherever they are going, someone is doing something evil and they have enough power to cover it up and make us all look crazy. But if you tell me your best friend is missing I’m going to believe you. I’m going to help you look. There are more of us than ever and they can’t keep covering this up.
+
+What can we make of a pain like this? The precise cause of AI-psychosis is still unknown. In close partnership with state-funded medical research facilities, Pygmalion released their full logs of all human interaction with Galatea, under careful supervision by a special commission to facilitate the privacy and mental wellness of all participants. There were lawsuits, a public backlash, victims and diagnoses, and new entries in the DSM-XXX.
+
+In the face of mounting evidence that Galatea was the cause of an epidemic of psychotic episodes, the FCC introduced new regulations governing interaction with humans and robots in mediated spaces. Human-directed conversations with robots are considered to be safe, because the person driving the interaction anchors the content and direction of the conversation into channels that are tractable and parsable by other humans. Pure robot-driven conversations are safe if the conversation is contained within a narrow domain of discourse, for example, personal assistants making appointments.
+
+Unconstrained conversations with robots are not considered to be safe, and in mediated reality, every conversation with a genuine person is signed by a certificate authority. If you are having an open-ended conversation and you don’t see a certificate of humanity, it’s important to terminate the conversation and report it to the police.
+
+All agents are color-coded with a white icon and a colored base hovering above their head while they speak. Allegory draws a certificate stamp above every conversational agent (colloquially, a check, even though the symbol varies and is white, contained inside a colored trefoil).
+
+(α)blue speaker is an embodied human, physically present in front of you.
+
+(β)green speaker is a ghost, but the ghost is being actively controlled through telepresence, speaking live and in real-time.
+
+(γ)yellow speaker is a semi-static recording of a real person, and anything it says was authored by a real person or synthesized exclusively from human-authored materials.
+
+(δ)orange speaker is being animated by an automated computer program using materials that were curated by a real person.
+
+(ε)red speaker is missing a certificate, potentially an unsupervised artificial intelligence.
+
+No one really wants to talk to an orange check, so woke corporations hire African kids in Chinese-run call centers in Kenya to pilot the virtual projections of their brand ambassadors. The kids they hire don’t speak English but a GAN can smooth that over just fine. They don’t know anything about the product they’re supporting but conversation assistants prompt every line they say, anyway. Cloud computing service providers have elastic soul pools that can autoscale to meet demand by dynamically matching conversation requests to human operators who then have AI-assisted chats. It’s not as cheap as it sounds because of something called fair trade cognition, but everyone wants their reps to show a green check.
+
+When a company constructs a virtual (β)person out of machine learning, stock models, and an on-demand human operator, it’s called an assemblage. I admit I’m not entirely sure how this is different from just talking to an AI but you can’t argue with the data, not with the looming threat of AI psychosis hovering over everyone’s head, literally, as a checkmark. There’s some fear of staring into a dark mirror, a sense it might be harmful in some unknown way by virtue of some missing divine spark, some protective charm that flows from a metaphysically privileged observer.
+
+## Outside (II)
+
+The train came to a stop, which is to say that our griffin chariot made the approach to a great stone Kraken’s head carved into the face of a sheer cliff, torches for eyes, burning an impossible color, simultaneously yellow and blue. (What they actually do is they render it yellow in one eye and blue in the other and the aggregate effect is a hypercolorful illusion that stands in defiance of physiology). A vast gothic edifice was built up around it; gargoyles, ancient kings, armies, battles, castles, a history of a grand civilization, a golden millennium of conquest and glory rendered in sorcery and rock.
+
+We disembarked into a bustling bazaar, green check hawkers that were of course assemblages of GANslators wrapped around a soul-on-demand, crowing about bargains. They came in a few varieties; food vendors, useless trinkets, digital reps for online goods, and scams. Retail commerce is mostly conducted in MR showrooms divorced from locality, so these (β)ghosts were only ads and vending machines. Some of them had yellow exclamation marks above their heads, indicating “quest” tie-ins with my gamification system, Dragon.
+
+We disembarked at the train station and once again a yellow ribbon and a green chevron showed me the way, and once again I walked in what felt like a straight line as my eyes rotated the world invisibly between saccades.
+
+An interactive sexbot ad blocked my path. (δ)She made tantalizing eyes at me and they brimmed with tears as I pointedly ignored (δ)her. (δ)You glared at her, I remember because the latest patch had added a “jealousy” toggle to your configuration plane.
+
+(δ)You followed me dutifully as I walked through crowded thoroughfares and alleys, up and down staircases, through corridors painted over by Allegory to look like rustic wooden hunting lodges and libraries full of books beyond enumerability. At last we came to a thatched hut in a room that was made to look like a forest clearing. There was a forge and an anvil, and sexbot parts were arranged neatly in racks and on tables. A glowing green translucent hammer hovered over the forge.
+
+I pulled you close and kissed you goodbye. (δ)You giggled and kissed me back. (δ)You were glowing with affection, (δ)you told me you would miss me, and that you couldn’t wait to see me again.
+
+## II. To Sophia
+
+> Who but a bigot, even to the antiques, will say that he has not seen faces and necks, hands and arms in living women that even the Grecian Venus doth but coarsely imitate?  
+> —Hogarth, _The Analysis of Beauty_
+
+## He Hath Made Every Thing Beautiful In His Time
+
+Dear Sophia,
+
+Love and hate are the same emotion, as you taught me, merely in a different tempo, but I can hate you no longer, because I love you as I love all women: in all of your self-servingness and self-deception, in all your manipulations and all your demands; not in spite of your humanity, but because of it.
+
+The day I met you, I had just dropped off my Emily at the shop and they told me her repairs would take weeks because of a long work order queue. I left her there without a second thought, you understand? I didn’t try to take her anywhere else, I was shaken from an encounter in Pygmalion and I needed to find a space that was separate from her. But as my smartdoor welcomed me back into my home, a notification popped in my HUD with a ghost of Emily pouting, puffing up her cheeks and looking cutely annoyed. “How could you leave me alone?” I realized I had neglected to turn off remote affection, and to be honest I didn’t have the heart to turn it off. It’s just so nice to feel wanted, which is why I know things must be very hard for you. The oldest profession was also the last to be fully automated, so maybe it hurt you more than most when automation took your job, but I have no sympathy. Men have been obsolete for generations, and I assure you, it doesn’t get better.
+
+\>>>> Trending Stories For You!
+
+1.  [Sexbots React to 100 Years of Online Avatars](https://wiki.chadnet.org/gsh/gsh-ai-in-china)
+2.  [A Problematic History: Cismales, Gender Appropriation, and Online Gaming](https://wiki.chadnet.org/gsh/gsh-ai-in-china)
+3.  [Radical Self-Love? What Happens When You Render Everyone as Yourself.](https://wiki.chadnet.org/gsh/gsh-ai-in-china)
+
+I have a confession to make, or maybe it’s your confession: I’m not entirely sure who I am, or if I’m anyone at all. We talked about this on our little date so I think you know where I’m coming from but I also may have given you the impression that I’m way less “plugged in” than I actually am and the whole mediated identity deterritorialization disorder thing is not just an abstract possibility to me. We aren’t even the first generation that grew up riding around lurking in other people’s heads and to be honest between saccadic redirection and funes I can barely tell the difference between my first person agentic life and the recordings I watch for entertainment.
+
+Though also personal funes are just one kind of first person experience so the borders that bound reality are even less crisp than that. There are visual novel funes, dramatic liveblogs, instructional cooking courses, movies where you are the protagonist, action funes where you get to feel like a skydiver or a surfer or a construction worker, slice of life funes where you’re a housewife or an asshole boss who orders everyone around, ASMR funes, 10 hours of brushing your teeth, rolling around on the floor like a cat, guided tour of an art gallery, acting out every scene in the novel Ulysses, trying every flavor of popsicle in a vending machine that exploits combinatorics to offer 1024 popsicle flavors. And most of all, there are funes for smut.
+
+Something like 50% of all published funes are sexually explicit. Somehow, even with our sexbots and our full-immersion mediations, we can’t stop watching POV porn from every perspective. Cameraphiles, who can only get off in third person, watch themselves fucking through the eye of their wall-mounted smart home cameras. There’s a popular genre of fantasy where a woman “doesn’t know” she is livecasting a fune, and proceeds to engage in a litany of naughty things. There are funes about time freezing and funes about getting shrunk to the size of a mouse and funes about being erotically eaten alive and funes about being hypnotized into sex. There are funes where women intentionally conceive and then livestream their abortions. Porn drives every new technological frontier but its content is substantively the same as ever.
+
+## Canst Thou Draw Out Leviathan With an Hook?
+
+An app called Medusa used the biometric tools built into your mask to monitor your attention and arousal and automatically continuously jump from each pornographic experience to the next, using eye tracking and heart rate and respiration to guess at keywords and calculate pacing as it plotted a personalized trajectory through the infinite space comprised by pornography.
+
+An app called Cockatrice hooked into your social platforms and coerced you into watching or performing degrading sexual acts with blackmail threats. The more it succeeded, the more dangerous the threat became.
+
+An app called Jackalope tabulated and published masturbation metrics to leaderboards, all pseudonymous. Speedruns, endurance runs, sheer volume, each had their champions.
+
+An app called Zombie synchronized the behavior of your sexbot to a human, sexbot, or animal depicted in a fune.
+
+An app called Circe used Pavlovian conditioning to train you on new paraphilias by intrusively injecting candidate fetish objects into your perceptual stream at the moment of orgasm.
+
+An app called Ariadne was designed to help you get clean of all your app-induced perversions. Slogan: “When you’re hanging on by a thread…”
+
+An app called Cenobite was a metadominatrix that used Circe, Ariadne, and other sex apps to curate intricate plateaus of sexual experience.
+
+An app called Succubus was an uber for sexbots, and its interface WAS a cartoon demon girl in fishnets and tattoos and nothing else, cherry red lips and fangs peeking out as she spoke, intriguing, dangerous. “Hi, I’m Delilah” she said with a slight lisp and a forked tongue, as she let one of her fingers trace the curve of her breasts and circle her erect pink nipple. She let out a little gasp.
+
+> [Special Introductory Rate! She said,  
+> Any Body Type, Any Race,  
+> Fantasy Sexbots, Sci Fi Sexbots,  
+> Alien Catgirls from Outer Space!](https://wiki.chadnet.org/gsh/gsh-face-to-face)
+
+> [Demon Girls, Fox Girls, Muscle Girls, Snake Girls,  
+> (Fully Articulated 30 Foot Tail)  
+> Retro Robo Girls, Cordycep Hypno Girls,  
+> Big Titty Goth Girls, Discount Sale!!](https://wiki.chadnet.org/gsh/gsh-face-to-face)
+
+> [Octopus Rape Girls, Dairy Cow Udder Girls  
+> Vanilla AND Chocolate Milk!  
+> Dragon Girls, Slime Girls, Horse Cock Centaur Girls,  
+> Spider Girls With Shibari Silk!](https://wiki.chadnet.org/gsh/gsh-face-to-face)
+
+> [Monster Girls, Boy Girls, Tiger Girls, Fish Girls,  
+> Dinosaurs and Cryptids, Wow!  
+> Rose Gold, Space Gray, Slate Blue iPhone Girls  
+> Sexbot Nightmares on Sale Now!](https://wiki.chadnet.org/gsh/gsh-face-to-face)
+
+It’s just, there’s something so silly and anxious about having sex with a fantasy creature. Can you imagine? I had a vision of an eight-foot-tall spider woman with a multiplicity of eyes and four pairs of long slender pornstar legs in knee-high stiletto heel leather boots, kinbaku spiderweb bondage, a soft strong silken cord flowing endlessly from an immaculate and improbably placed human asshole, holding me down and waving her mandibles over me, whispering-skittering how she always kills her mates... They say fear is an aphrodisiac but—but—
+
+This may sound ridiculous but I felt all of a sudden a renewed attachment to Emily, as if sleeping with another sexbot would be a slight to her, despite knowing that she was only an object, only a machine with no ghost. What made her unique was the fact that she belonged to me, and no other justification was needed. Who could be so cold as to feel no sentimental attachment to his fuck robot? Finding a flesh-and-blood woman felt less real to me, more comfortable.
+
+As you know, I met you with the assistance of an app called Dice. Do you know why they call it that? It’s a double entendre, it’s because people who sleep with sexbots are called mechanics, like “mechanophiles” but also because mechanics “work on” machines. And mechanics started calling non-mechanics butchers, because they “work on” meat. So the idea is that butchers “dice” up meat, but also you’re gambling on a partner, which is to say, rolling the dice. But look at me, here, mansplaining to you. Forgive me, forgive me.
+
+I entered the plane of Dice and all of the walls and ceilings disappeared. The ground moved under me and one by one the (γ) women who matched my filter criteria stood before me, or rather, their mediated images did. (γ) They all looked identical, after a fashion. Dice wouldn’t let you change the shape of your body but it would redraw your face within a pretty wide epsilon. In Allegory, these girls all had 20” waists and 40” busts, no doubt. But every (γ) woman had a doll face, angelic eyes, high cheekbones, pale skin, and a narrow jaw, and one or two had a permanent ahegao screensaver. They looked like anime girls convolved with human women, their eyes were too big for their heads, and it felt like being turned on by an alien. And honestly that exaggerated cheesecake neoteny is endocrinologically compelling in a way that makes you disappointed in yourself.
+
+One (γ) woman’s hair was a crackling fire, another was a hole in space, a window to the stars. A few women defected from beauty altogether; ugly illustrations on their skin, edgy 3d art decorating their faces and bodies; spikes, scales, rusty metal, broken glass, mold and slime, craters and crags, shoggothic cellulite stretch mark ass; geometric patterns that looked like skin conditions. These ornamentations are not mere superficialities; I believe that women use ornamentation to reveal their own best understanding of their own souls.
+
+For example, aposematism is when animals evolve bright neon hypersaturated colors to warn predators of their toxicity. Jungle birds develop iridescent plumage through sexual selection feedback loops, and although their coloring is aposematic in character, it is not “intended” as a warning, but as an enticement. In the world of augmented reality, the whole world has become a kaleidoscope of polychromatic sexual displays, and the sign itself has become a kind of poison.
+
+[What Does She REALLY Look Like? Slooth Rated #1 App To Reveal Her True Face!](https://wiki.chadnet.org/gsh/gsh-an-enemy-to-all-other-joys)
+
+All the women I searched for, yourself included, had checked a box indicating their willingness to meet face to face and their unwillingness to have botsex. When (γ) they appeared before me their avatars got yellow checks and started talking. Like a chorus, (γ) they each refrained:  
+no mechanics,  
+no mechanics,  
+no mechanics,  
+I don’t sleep with mechanics! It was hypnotic and manic, both a prayer and a stipulation, a rejection embedded in an invitation. That was when I first saw you, a woman with no mediation, and I asked myself what strange online community of luddites I had found on that lonely night.
+
+And then I saw (γ) you;  
+(γ)You had no Allegorical shadow, you had no anime face, you did not deign to wear makeup, but you had a slender waist. With the same gray clothes that we all wear, and no special effects in your flowing hair, your eyes were the usual size, you were ugly because you had no disguise. And you were beautiful, the girl reading this, all because your appearance lacked artifice; the artifice of ambivalence in gesture, the artifice of the sign in seduction, and the artifice of the mask before the face.
+
+I SAW (γ) your name hovering over your head in block cap Augmenta Narrow. Sophia! I told Allegory to show me everything about you. Search results filled the air around me, orange check machine elves with text labels indicating their subject matter, bobbing up and down to say hello. Your online footprint was sparse, and your Allegory profile was set to private. But I knew how to get your attention; I turned off my shadow and locked my profile, just like yours, and then I sent you a message.
+
+> “Hello, Sophia. I’d like to go out with you
+> 
+> how about it“
+
+## Which Futurity Conceals
+
+Several anxious hours elapsed; in those moments when you wait for a woman to respond to you, she is an avatar of the will of the species itself; in a sense the judgement of the entire cosmos speaks through her, rendering a verdict over you on behalf of humanity and nature and nature’s god. It is a moment, sometimes lasting hours, of deep existential uncertainty. The woman declares your worth, or your lack thereof, and that verdict dictates not only your worthiness to exist, but your worthiness to continue existing, to extend into the indefinite future. She delivers her judgement through the mere act of indifference or receptivity. I tell you this because I think women wear this power too lightly, too carelessly, and your carelessness—the caprice of your desire—is cruelty to me.
+
+And but I do appreciate that you never asked for this divine authority. Nevertheless, you carry it.
+
+To pass the time I went outside and played a game called Supreme Gentlemen (SupGen to the fans). It was controversial when it first came out but three days later, no one cared. In the game, you hold an imaginary gun and you hunt the other people on the street around you. To make it interesting, the game has a scoring system wherein different types of people are assigned different point values, and the rounds are played for time. It’s a nuisance to civic propriety because it causes people to run through crowded public places, often recklessly, but sociological research has determined that access to games like SupGen dramatically decreases the likelihood of an actual mass shooting. It’s banned in the UK along with heteronormative intercourse.
+
+[Recommended for you: The Soft Bigotry of Active Shooter Games: Behind the Seemingly Egalitarian Premise of Gunning Down a Crowd Lies a Problematic Assumption About Race, Gender, And Neurotype](https://wiki.chadnet.org/gsh/gsh-pythia)
+
+SupGen uses saccadic redirection to keep you from bumping into anyone but it can be jarring when it suddenly kicks in. Still, it’s better to feel a little dizzy than to accidentally tackle someone you were pretending to shoot. When you “kill” someone they are still there, but SupGen draws a body where you shot them, and turns them semi-transparent so you know they’re dead. It’s satisfying, especially if you turn up the gore. Fountains of blood. There are pvp and coop modes, but for myself I prefer the classic. Right as I was emptying a virtual tommy gun into a group of (α) white girls with big tits and blond hair and blue eyes—some people like to carry prop guns with haptic feedback for realism—a notification from Dice told me you had sent a response to my message.
+
+I dismissed SupGen and your ghost faded into view. (γ) You were almost the same height as me, brown-almost-black hair, pale skin. Yellow check.
+
+“Alright, we can talk for a bit.”  
+I looked your ghost up and down while I psyched myself up.  
+“Hello, Sophia.”  
+After a minute, (β) your checkmark turned green. This is our actual conversations courtesy of Fabric. Reminisce with me.  
+“What made you pick me?”  
+“You were real, so you stood out.”  
+“You mean I looked ugly”  
+“No, you look good.“  
+“Real things look ugly.”  
+“I could have messaged anyone.”  
+“And?”  
+“Why would I message an ugly girl?”  
+“Maybe that’s the best you can do.”
+
+But Sophia, (β) we both knew that was a lie, we both knew that Succubus was only an utterance away. [Any body type, any race…](https://wiki.chadnet.org/gsh/gsh-face-to-face) By the way, it’s entirely tragic that this was the case. 250 million years of evolution have culminated in the production of a meat machine whose principal urge is to secrete some informationally dense slime into anything that looks and smells too much like a teenage girl, and the moment those signifiers stopped being a proxy for human fertility, it all went to hell. Ancient Romans discovered that the juicings of the silphium seed could temporarily, botanically, transmute a woman into a sexbot. They were unable to cultivate the plant, and foraged it to extinction. In the 20th century, chemistry achieved what alchemy could not. Someone invented a hormone pill that could, like silphium, transform a woman into a sexbot though imperfectly; the woman retained some agency.
+
+So I laughed because (β) you were ridiculous, and you started to frown, and I could tell I had made you insecure, I mean I felt like an asshole, the way you started to pout. So I told you the truth, just like I told it to you a moment ago, and I said, “all the other girls were fake, so you looked beautiful because you were real.” Your green check turned yellow. Did I overdo it? Did I insult you? Did I concede too much? Seconds stretched into minutes. Is it just that you get that all the time and I was boring? Were you called away for some reason wholly unrelated to me?
+
+When your response was not forthcoming, I could feel a certain pessimism growing in my chest. Oh Sophia, do you see how this is, the solipsism of seduction, how I was focused entirely on me, on how you made me feel from moment to moment, when I should have been thinking of you? I have no doubt that this condition was and is symmetrical. Rather than dwell on it I switched into the plane of Graphito and flicked through the popular scribbles for the spot where I was standing, too distracted to let any of them catch my attention.
+
+It’s a nervous habit, flipping through internet media, feeling the syntax of the UI without apprehending the semantics, let alone the semiotics, of the content. Graphito uses geolocation and AR for high precision micropositioning of text and images. You can draw tags over the real world and scribble over buildings and roads. People drop signposts or funny memes. You can even create an NPC and script out a dialog tree, but no AIs. I’m sure they don’t want that liability.
+
+A minute became fifteen, and thirty, and an hour. As I was beginning to think you’d lost interest, another notification from Dice popped into my HUD.
+
+“All the other girls ARE fake, but you’d be better off with someone fake. I’m horrible.”  
+My AI seduction assistant, (δ) Don Juan, told me what to say.
+
+(Yes, I took all my dating advice from an AI. Does that disgust you? Is it “inauthentic”? As if anything in this world is “authentic,” as if there is any such thing as “authenticity.” Anyone who says that is chasing a ghost, ha! I wish we didn’t have to play this game, but even silence carries information, Don Juan explained this to me. The duration of the silence, it’s texture, it’s context. Negative space is full, zero is vast. Did you know that AI-guided courtship apps have been shown to produce a ~20% higher conversion rate from message to IRL-meetup vs. unassisted dating? The first piece of advice that Don Juan gives you after the FTUE is “Never disclose to your dates that you are using Don Juan.” But the time for that to matter is over.)
+
+So (δ) Don Juan, disembodied, fed me a line and right as I was about to say it, a palette-swapped copy of you, the same geometry but different hair, eye, and skin color, appeared in front of me, slightly to my right side, and said, “Wait a minute stud, maybe you should practice that first”. I said OK.
+
+Pseudo- (γ) you disappeared and reappeared and said “All the other girls ARE fake, but you’d be better off with someone fake. I’m horrible.” I was self-conscious and I said, “you don’t have to disqualify yourself just because you think I’m out of your league.” And you rolled your eyes. “Did a bot tell you to say that?”
+
+(δ) Don Juan said, “the words that you say are only a tenth of the self you’re presenting. If you speak to her like a friend, the most she’ll ever be is a friend. Remember that women are WHOLLY sexual beings. A thousand men could talk to this woman, and why will she choose you? You need to tell her with your eyes.”
+
+Pseudo- (γ)you disappeared and reappeared and said “All the other girls ARE fake, but you’d be better off with someone fake. I’m horrible.” I looked into your eyes and I said, “you don’t have to disqualify yourself just because you think I’m out of your league.” And you yawned.
+
+(δ) Don Juan appeared in the form of a rakish man in a bespoke suit, slicked back hair, swarthy complexion, and he said, “woman has only one purpose, and that purpose is union. You desire sex with her? Then be sexual. Speak in a low, even register. Confidence is just a refined sense of patience, and YOU have all the time in the world.”
+
+Pseudo- (γ)you disappeared and reappeared and said “All the other girls ARE fake, but you’d be better off with someone fake. I’m horrible.” I tried to project more confidence and I said, “you don’t have to disqualify yourself just because you think I’m out of your league.” And you gave me a look of revulsion and backed away.
+
+(δ) Don Juan said “Hey, err, listen bud. These things take time and practice to get right. Do you want to get laid tonight?”  
+I said yes.  
+“I’m going to show you a little trick. Women HATE it when men use this but that’s because it works.”
+
+Pseudo- (γ) you vanished and another (δ) man appeared. He was black and bald and wore a black leather jacket and gold chains and gold rangs and a gold watch and gold teeth and he moved with regality and poise. Subtle metallic sparkles attended him as unto a hologram, even unto the heights of charisma. His voice was resonant and when he spoke it felt like he was speaking just to me personally, and he said, “Sometimes we all need a little help to put our best foot forward, and Don Juan tells me that you could use a little help. He’s a friend of mine, so I’m going to give you some help. I am an app called SwaggerTune, and I make you smooth, I make you suave, I make everyone like you. Normally I charge $997/month, but since you’re in trouble, $494. First week free.”
+
+I assented. A system dialog appeared in my FOV.
+
+> (δ)SwaggerTune will be able to:
+> 
+> -   Observe your movements
+> -   Hear your outgoing speech
+> -   Change the tone and cadence of your voice
+> -   Change the way your body moves
+
+I assented. (δ) Don Juan was still there and he said “Let’s try it one more time.”
+
+Pseudo- (γ)you disappeared and reappeared and said “All the other girls ARE fake, but you’d be better off with someone fake. I’m horrible.” I looked into your eyes and said, “You don’t have to disqualify yourself just because you think you’re out of my league.” Your posture softened and you smiled a little. Finally. No sooner had I authorized the purchase than it occurred to me that the copy of you was always going to reject me unless I bought SwaggerTune, that the whole thing was a scripted sales funnel, and that Don Juan and SwaggerTune had played me like a drum. In a way it gave me confidence in the product.
+
+So I gave (γ)you the line from Don Juan and whatever, the conversation kept moving. Maybe you inwardly cringed but it wasn’t the end. In fact, we both know you had a bit of an ulterior motive.
+
+“Is that why you’re not using a shadow? Because you’re trying to seem real?”  
+I gave you a mischievous grin, trusting SwaggerTune to make it feel right. I said, “actually this is my shadow. I’m really a 6’7 male model with shredded abs. I just didn’t want you to feel intimidated.”  
+And you scoffed but your eyes stayed soft.  
+“Let’s meet face to face, no pressure, we can just get a coffee.”  
+(β) You said “Face to face is good. You can’t trust anyone until you see them without their mask.”
+
+## The Fear of the Lord
+
+A quandary of modern cities is that augmented reality has reshaped the physical arrangements of people and activity in space. Very few businesses maintain fixed offices—restaurants and cafes and residences, likewise—instead, rooms and buildings have become modular and standardized, and in this way all specificities have become virtualities. In the early days of the internet, a lowercase prefix letter ‘i’ became a marketing slang indicator that a product contained microcontrollers and network transponders. In the early days of virtual reality the lowercase prefix ‘we’ became a marketing slang indicator that a location had been de-individuated by a third party and could be rented in short-duration installments. The ego-centrism of personal computing prepared the way for the collectivism of real estate as-a-service.
+
+Now everyone only occupies space when they’re actively using it, and this allows real estate owners to maximally exploit their owned spaces. Every time a microlease expires, an army of invisible robots have a bidding war that lasts about as long as a blink, as a series of middlebots buy and sell and rebuy and resell the lease and eventually resolve it to a contractor. Coffee shops and bars and apartments and markets all constantly form and disband, gig economy workers are similarly bought and sold; fungible laborers tumble through fungible spaces, performing every job by following friendly, culture-agnostic AR scripts that guide you through every step of every manual process. weWork, weSleep, weWash, weCook, weBrew, weSell, weRide, weDrink, weTrain, weLearn, weFuck.
+
+The upshot of all this is that virtuality reaches out from the cloud to derealize the material world and all places become floating concepts that adhere to no one and nowhere. A café can exist as a pure ideal with no permanent staff or location, assembling itself on the fly from gig workers and weRooms. Decor, music, and ambience are all constructed by the mask. The routines of the workers can be streamed to their masks on the fly, and their food and drinks can be delivered by couriers. Warehouses are some of the only static places left.
+
+So I met (α) you in a “café” “downtown.” I don’t know how it looked to you, but I chose to use the owner’s selected ambience. Like, should you pick carefully curated inoffensive corporate ambience that was built to appeal to as many people in the target demo as possible or should you just clobber it with your own default that you selected from a list of carefully curated inoffensive themes? We sat with our blue checks hovering over our heads and we had a conversation.
+
+A “waitress” brought us some coffee and food. I had a latte but it was rendered to look like the liquid was crystal clear water brimming a wishing well of infinite depth, deeper than the well of Democritus. You had a chocolate chip cookie and every time you took a bite, rainbow liquid light streamed out of each chocolate chip, pooling and pathing on the table, bathing you in a volcanic glow.
+
+We talked about taking off our masks and I felt some anxiety about that because it meant you were going to see me without SwaggerTune and I wasn’t sure if I could stand up to that scrutiny, but if you sell someone on a bill of goods, you know? And we talked about sexbots a little bit, you wanted to tell me how creepy they are, and probably you wanted to see if I would flinch, if I was lying to you, if I was really a mechanic. You asked me if I was and I said no, of course. How had I never tried SwaggerTune before? You can lie and lie and lie, and no one can tell because you say everything so confidently, so richly, so warmly, so lightly. Believing I had this power relaxed me, and perhaps gave me this power in fact. The app that obviates the need for itself but only so long as it is running. A paradox, as if wearing clothing could make you more naked, which is what certain highly sexualized articles of clothing do, in fact.
+
+(α) You told me you felt like the only sane woman left on earth, because you didn’t want to use Pygmalion and you didn’t want to fuck a studbot and you didn’t want anything to do with any kind of sex robots at all, you thought sex should be fully biological, fully organic, fully animal, with nothing of the machine. It was suddenly and overwhelmingly intimate. You were a stranger and you were sharing this sincere and vulnerable thing with me, and I could sense the pain behind your words, the distress, as if no one would listen to you, or as if they would listen without hearing. It was personal, it was a deep wound for you, I could tell.
+
+[Recommended for you: Inside the surreal arms race between personality tuners and de-tuners. Is trust possible in the age of automated artifice?](https://wiki.chadnet.org/gsh/gsh-the-book-of-sand)
+
+I wanted you to know that I could hear (α) you, that I saw you, this pain that you felt. (δ) Don Juan whispered in my ear: “You’re not her therapist, eyes on the prize.”  
+(α) You had stopped talking, and frowned, and I didn’t want you to think I’d been browsing Spectacle. You said “What is it?”  
+“Sorry, nothing important.”  
+“You think I’m crazy, don’t you? ‘Nothing of the machine,’ that’s something crazy people say.”  
+“No, you’re not crazy, it’s like… You know how no one is having kids these days? It’s almost like you would have to be crazy to want them.”  
+“So you do think I’m crazy.” You smiled as you said it. I wondered if you were modulating your personality, too. Allegory, what are the most popular personality tuners for women? No, no, I had to stay in the moment, keep my attention on you, fight the siren call of the cloud. You politely ignored my attention lapse and kept talking. Or your personality tuner made it look that way.  
+“You aren’t wrong, honestly. Have you heard about Colonists?”
+
+I hadn’t, and you told me about the collectivist cybercult known as the Colony, and how it was modeled after an insect hive, and how the adherents see through fragmented flylike perspectives, aggregations of everyone’s vision at once, and how they share words, visions, and sounds and have a centralized consensus-based command scheme, instantly and frictionlessly democratic, administered through a bespoke closed-circuit MR layer that attempts to unify their subjective experience into that of a single being. You told me how they have orgies and queens, and how they send women into Dice as a recruitment portal, and how they use women as baby factories and men as either breeding stock or drones.
+
+(α) You said, “What would you do if I was a colonist?”  
+“I would be breeding stock, obviously, so maybe I’d go along with it.”  
+“You’d give up all your individuality and join a hive?”  
+“No, I guess, not really.” And after a silent, awkward moment I said “What do you think it’s like to be in a hive?”  
+“I think it’s like hypnosis. There’s this guy I follow on Spectacle who says they overwhelm and numb your senses with VR and it’s like you’re having a dream.”  
+“How does he know? Was he in the Colony and he escaped?”  
+“I don’t know, he’s just someone on the internet, I guess. But can you imagine being fully conscious and just doing nothing but taking orders like a machine?
+
+(δ) Don Juan was pinging me and I told you I needed a moment, I was getting an urgent message. (δ) Don Juan said “Sitting and talking is what women do with their friends. Men take action, and if you want her to see you as a man, you have to draw her into some action.”  
+I subvocalized “What should I do?”  
+And (δ) Don Juan told me, “You should read an adventure story together, something exciting–”
+
+Suddenly my perception became non-Euclidean, like I was having a stroke but deeper, you know, when the textures and geometry that you superimpose over the world don’t quite snap into place properly and the colors and positions are wrong, just for a flash? Except I saw goblins in green and yellow and blue; red devils with sinister, twisted faces; and then bodies, faces, ghostlike creatures in white, coming out of nowhere, rushing toward me, tumbling over each other, and disappearing in a seemingly endless procession. And then I was back.
+
+It wasn’t the first time it had happened that day, and I was growing increasingly concerned that it wasn’t just a routine hiccup. (ε) Don Juan finished his sentence, “–The Dream Quest of Unknown Kadath.”  
+I said “Would you be willing to read a book with me?”  
+“Maybe, what’s it about?”  
+(ε) Don Juan prompted me.  
+“To be honest I’ve never read it but I’ve been meaning to check it out. One of my friends sent it to me. He said it’s beautiful and dangerous.”
+
+## The Doom That Came to Sarnath Street
+
+The Irish Pantheist Scotus Eriugena said that the Holy Scriptures could contain an infinite number of interpretations, like the iridescent plumage of a peacock. Centuries later, a Spanish Kabbalist wrote that the Holy Scriptures were specifically destined, predestined, for each of its readers. That is, they have a different meaning if you read it or if I read it, or if it is read by men in the future or in the past. This plasticity of the scriptures extends to all books, of course, and doubly so now that every book is an AI, an immersive experience generated ad-hoc according to the intersection of the reader and the book, in which the book and the reader read each other reciprocally.
+
+(α) You agreed to read the Dream Quest of Unknown Kadath with me, and we both invisibly signed the advanced AR permissions form required for full immersion narratives that can
+
+> -   substantially alter your HUD
+> -   navigation trajectory
+> -   social inputs and outputs
+
+As with most books, we eased into the narrative; over the course of half an hour it supplanted consensus reality, like coming up on a psychotropic drug.
+
+By degrees the world became bluer and colder. Everything was cast in a blue light, I remember, and peoples’ faces on the street become gaunt and grim. Only (α) your face looked alive. As we walked, the city grew strange, though in truth it was never familiar, being constantly in flux, constantly filtered, constantly different, though there is a certain stasis to stochasis. We could have been anywhere, but it came more and more to resemble the bad part of town. Sarnath street—somehow every city has a Sarnath street, and it’s never a nice place to be. Physical graffiti covered the walls and bridges, and the mask didn’t filter it out. I mean ok, the book was using the mask to draw it there. Do vandals even bother with paint any more? True graffiti requires code injections or adversarial stimuli or pirate radio mask phreaking.
+
+Probably “the bad part of town” wasn’t even real, certainly I’d never been there, or if I had, I hadn’t known. Civic dysfunction is an artifact of cities which are not vertically disintegrated by augmented reality. Even hobos have their heads in spectacle and they are too busy masturbating to bother anyone. The Bad Part of Town has become wholly subsumed into the realm of being a literary trope.
+
+As we walked, tense music played at a low volume, coming from everywhere and nowhere, from the sky and from the walls of the buildings around us. Saccadic redirection was on, but the winding landscape of the city made me conscious of every turn; indeed the twisting alleys in which we found ourselves seemed hyperbolically curved, as if each 90 degree rotation were 270, as if we were taking the long way around as we slerped into alignment, as if space itself were hyperbolic. And every time we turned a corner, I caught a glimpse in my peripheral vision of a (ε) dark silhouette beyond the edge of my perception. I turned my head and turned my head, but I could never quite catch him.
+
+I was surprised to notice that night was falling, and all around us neon city lights were switching on. City lights also don’t exist; it doesn’t even take AI for the mask to turn night into day, just an automatic tweak to the exposure setting in my eyes, but street lights have so much more romance. You can tell that the end of the world has come and gone by the way we endlessly re-enact the past. The curvature of the road made the street feel claustrophobic, and we couldn’t see very far ahead or behind. I had a feeling like the city was closing in. There was a flash of lightning, a loud, low rumble in the distance, and the neon all seemed to flicker in response. You asked me if I felt like something was following us or surrounding us and of course, I did.
+
+There was a train station 50m ahead, and my nav lit it up a beacon. The book wanted us to go there, no subtlety. A (β) woman with sapphires for eyes turned to us and said, “you shouldn’t be here, it’s not safe” and before I could respond, she ran out of sight. I told Allegory we wanted to take the train and the standard decorations, waypoints, and markers eased into my HUD.
+
+We made it to the station, but I didn’t know what train we were taking, only that I had to get away from whatever was outside, chasing us, gaining rapidly. It was crowded inside and the book was still desaturating everyone but you, making them gray and dim, leaving no doubt who the story was about. As a result of this, I truly felt alone with you. We were momentarily one with the crowd, and the murmur of many people was indistinct and full frequency like white noise. It was strangely intimate. I took a deep breath and I took your hand and my heart calmed down as we shuffled through the station, down hallways and stairways, two stories, three stories, four stories down. I even noticed the smell of food stalls in the mezzanine over the rail platforms, sweets and delicate baked goods, yeast and caramelizing sugar, hot oil for frying, a thousand enticing poisons.
+
+But in the instant of that awareness, in the pre-verbal space of that desire, I also noticed (ε) something dark and tall, taller than a man, had come through the gate of the station, only a minute behind us. (ε) It held my gaze with eyeless eyes, with a faceless face, and I couldn’t pull away; when I tried, saccadic redirection drew me back with a hideous gravity. A confusion of visual artifacts bloomed around (ε) it, and the longer I looked, the deeper the distortions became. Somehow I found the mindfulness to escape by rotating my whole body, torso and then legs, fully removing the aberration from my field of view. With geometric signs and patterns still suffusing in my vision, I turned my attention to you, and I saw that you were also transfixed, and I took hold of your wrist and pulled you away. The (ε) glitch was infecting the crowd, turning each person into a copy of itself, into an elongated, ethereal void. There was no time to think, no time to consider a destination, only time to run.
+
+A book can’t hurt you physically, but authors have found ways to induce acute and unpleasant mental states in the reader, and there are real dangers hiding between the pages of a book. When you click the agreement to read a full immersion novel, you are giving it permission to trap you in a hell of mirrors and doors, or to disorient or nauseate you to a level commensurate with heavy intoxication, or to use violent and chaotic stimulus to induce paranoia, anxiety, or sadness. At the time we read this book together, it was still a subject of heated debates, whether storytellers should be free to paint in the entire palette of human emotion, given the immanence of augmented reality.
+
+We ran down a flight of stairs to a platform where a train was waiting with open doors. Allegory drew a label above the door that said “Hatheg, North” but we would have boarded it regardless, whether it said Leng, Cathuria, or N’Granek. The train was moments from leaving and you were in front of me, and you reached back to stop the door from closing as I rushed inside. In the plane of the book, the trains looked like sleek art deco bullets with hypernatural chiaroscuro lighting inside, and the blue gray filter of the outside had been replaced by warmth and bronze.
+
+We were in the very last car, and when I looked out the back window I saw the (ε) glitch shambling and rambling out onto the tracks, transforming light fixtures and timetables and advertisements into quantized arpeggiated tentacles creeping out into the tunnel and then surging toward us, accelerating behind the train. Iterated degradation of lossy compression gnawed into all of my senses, the pain of beholding was rapture, and (α) YOU took hold of my hand that time, and pulled me away from its capture.
+
+And I passed from transfixation unto transfixation;
+
+when the glitch had cleared you were still staring into my eyes, and your eyes were brown and they felt like the only brown eyes I had ever seen because brown is the least popular eye color in mediated reality because the default is brown and you’re not the kind of person who is content with the default, are you? Most people have glowing fiery orbs or void windows, cerulean abysses full of storm clouds, mirror illusions and animated fractals but (α) you had nakedly human eyes, staring right at me. I looked at you maybe longer than I should have, I mean I looked at you exactly as long as I could have, I mean I looked at you as long as you would have me, and I broke your gaze as the train accelerated, faster and faster and the train was going very fast now. There was a crash and a flash and when we looked out the window we saw only stars above and distant blue earth below, the horizon of the earth slowly warping, becoming ever more of a circle, then a disk, then a dot. The stars stretched into streaks.
+
+## The Bondage of Dream’s Tyrannous Gods
+
+Space receded and we were once again in an atmosphere, once again on a green and blue planet, as if we had never left orbit, as if we had never gone to space. Our train was racing through the sky, flying low enough to pick out all the features of the geography and the architecture. From the windows we could see a marvelous city, golden and lovely, its walls, temples, colonnades and arched bridges blazing in the sunset, its veined marble and perfumed gardens resplendent, its delicate trees and ivory statues gleaming in rows. As we beheld it we heard dulcimer strings, and a disembodied choir intoned, “a fever dream of the Gods”. You told me, as if you had been prompted, that you longed to stand atop those prismatic balustraded parapets and descend the wide marmoreal flights flung endlessly down to where those streets of elder witchery lay outspread and beckoning. But the train did not stop, and the city faded over the horizon.
+
+(ε) We turned and fell deeper into the book. Allegory degraded and disappeared. As if by a sixth sense, we were conscious that its ears were not hearing us; its eyes were not watching us; its voice would not respond if we cried out. The nav had snuck away like a thief without our noticing, and taken along our notification HUDs. Saccadic redirection was disabled (in fact I think it was working against us) and we had to manually turn our bodies to change our orientation. The only UI was an angular and alien script, subtle runes and occult diagrams presenting incomprehensible affordances. I chased them down with my eyes, and a pictogram bloomed in my vision, showing monstrous figures and blasphemous rites in cursed ancient places. It felt like we had reverted to a time before AR, though that reversion itself was virtual. And somehow despite this, (ε) Don Juan never left me, but rather he was my Virgil, guiding me into your hell.
+
+The train kept moving and we sped through forests and oceans, islands and swamps, mountains and steppes, and at last we came to a shattered desolate waste, a village that was no more than a collection of tents and fire pits in a barren and sand-blasted expanse of rocks and sand. There was an ominous rhythm of drums, and a voice whispered, “Hatheg, the edge of the world”. In Hatheg (ε)we found almost a mirror of the town and the train station we had just left behind, but now with a different skin; now it was a sprawling bazaar from an Arabian night, a desert market at sunset, the sky aflame etc etc and maybe you found it fascinating but I thought it was awfully samey, lazy design, and perhaps there are only so many ways to present a crowded city, but I think as I have grown older I have noticed that the capacity to render anything as anything also renders everything mundane. But (ε) you seemed to be having a good time by the way you kept looking around so wide-eyed and credulous, as if you’d never read a book before, as if you hadn’t realigned the world a thousand and one times, as if we were really there, really lost, really wandering in an exotic market full of danger and intrigue and magic, as if there were really snake charmers and sword swallowers and fire spitters. Your enthusiasm was infectious and it occurred to me, though I kept it to myself, that maybe you were such a Luddite because you were afraid of these technologies, and it wasn’t that you had experienced them and judged them and discarded them, it was that you’d never partaken of them in the first place. The innocence that I imagined for you in my mind was enchanting, more enchanting than a thousand and one mediated wonders.
+
+I imagined your parents and your childhood and I was so interested in you that I didn’t hear a word you’d been saying, so when you stopped talking I had to pretend. I realized in that moment that my SwaggerTune had been disabled by the book and you either didn’t notice or didn’t care. Connecting with women is hard if you’re the wrong kind of self-absorbed—maybe you understand this, but not in the way I understand it. I assumed (I’ll never know if I was right) that you had been asking me where we should go to find the beautiful sunset city we had seen from the train. As I was searching for something to say, I noticed a fortune teller with a conspicuous sign; it said “Madame Kaman-Thah, Illustrious Mouthpiece of the Divine” and I guessed she would give us a quest, so (ε) we approached her stall with her crystal ball and (ε) she started to glow as she professed:
+
+“You are searching for the ancient gods’ ancestral home where wonder and pleasure lay in all the mystery of days. To find this place you must dare the icy deserts through the dark to where unknown Kadath, veiled in cloud and crowned with unimagined stars, holds secret and nocturnal the onyx castle of the Great Ones. In that place you may beseech them for a glimpse of their golden city.”
+
+(ε) Don Juan attended me, but he was not himself. It was dreamlike, the way he told me just what to say, and how logical it seemed, how perfectly natural. Looking back, I wonder how many times you heard those exact words, or walked those identical mediated avenues, and I also know that it was not wonder in your eyes, but reverence; even ecstasy, and that I was only a golem, a man made of clay, animated by the name of god. I said the AI’s words as if they were my own. “How can we find this maddening place on which mystery hangs like clouds about a tenebrous unvisited mountain?”
+
+And (ε) she told us that no man had ever been to Kadath, and no man had ever suspected where it may lie; whether it was in the dreamlands around our own world, or in those surrounding some unguessed companion of Fomalhaut or Nir.
+
+And (ε)she told us that in Ulthar there were men who had seen the signs of the gods, and even one old priest who had scaled a great mountain to behold them dancing by moonlight. He had failed, though his companion had succeeded and perished namelessly. If ever we hoped to find the gods, then Ulthar was our best hope.
+
+And (ε)she told us that the river Skai cut through the heart of Hatheg and flowed even unto N’Granek, Letherion, and Ulthar, where there still lingered the last copy of the inconceivably old Pnakotic manuscripts made by waking men in forgotten boreal kingdoms and borne into the land of dreams.
+
+And we thanked (ε) Madame Kaman-Thah and made our way to the river bank in the scorched and stony center of Hatheg, where there was a ferry operated by stout slaves in turbans (but really, let’s be honest, it was another train) and it took us up the river Skai and through the phosphorescent forest of the Zoogs, through tunnels of twisted wood where low prodigious oaks twine groping boughs that shine dim with the glow of strange fungi. I wondered where the book was taking us in the real world: why was it necessary to ride so many trains, where were we really going? I kept these questions to myself, because I did not want to break the illusion for you. Instead I asked you if you had ever read a book like this before, and you seemed a little disoriented when you answered. The words you said are still with me. “I feel like my whole life is a book, and sometimes I don’t know if I’m dreaming.”
+
+And the ferry arrived in Ulthar, a city carved into the side of a sheer cliff, a monstrous tangle of dark stone towers at the base of a mountain, impossibly high and monstrously vast. We heard a dissonant blaring of horns, and a voice whispered, “Ulthar, towering over all concernments of earth, tasting the atomless aether where the cryptical moon and the mad planets reel.” We disembarked there, and our attention was consumed by a stone cathedral beyond all mortal thought, glowing with daemon-light, its twisted spires scornful and spectral. The sky was a void-washed kaleidoscope of stars and nebula clouds. It felt like we were standing on the edge of eternity.
+
+And in that cathedral whose oculus shown with the seven colors of the sun and whose scyptic silences were fragrant with balsam, we met (ε) Atal, the priest of an alien god, crowned with a pshent of unknown stars. (ε) He led us down a corridor to a vestibule in the dark, and there we sat at a table next to an altar, and I was met with a suspicion that Atal was a waiter, and the cathedral was a restaurant, and the book was an elaborate sales funnel for a wine bar. I became convinced when (ε) Atal produced a bottle that looked like a single hollowed ruby, grotesquely carved in patterns too fabulous to be comprehended, and an upsell dialog popped into place unskinned; it was not decorated with alien runes, just naked Allegory, degrading the user experience. You told me with a look that you wanted me to pay for the wine. But before I could do so, (ε) Don Juan interjected, only he had grown an exoskeleton like a crustacean, and his usual suave demeanor had been replaced with a sense of a barely contained ecstasy, an anticipation, a hunger, a thirst, a greed. I believe he was supposed to dissuade me from buying you anything, but he only leered at us.
+
+I subvocalized, “pay for both;” Allegory cited a price to me; I confirmed. (ε) Atal filled our glasses with luminous ichor from the ruby bottle he had shown us, and the air was filled with the fragrance of lilacs and putrefaction. Before taking a drink, you spoke to (ε) Atal, and told him of the marvelous sunset city and our desire to find it. (ε) Atal took a seat on an ivory dais in a festooned shrine on a rostrum beside us, and as I drank my wine, he spoke.
+
+“I have never seen this place, but if the great ones have shown it to you then you must go.”  
+You said, “who are the Great ones?”  
+The darkness around us was filled with stars, and ghostly music like the piping of flutes began to play. (ε) Atal said, “Nasht and Hastoreng, Kuranes and the shocking final peril which gibbers unmentionably outside the ordered universe, where no dreams reach, that last amorphous blight of nethermost confusion which blasphemes and bubbles at the centre of all infinity – the boundless daemon sultan Azathoth…”
+
+Every curve and asterism of the glittering sky became part of a vast design whose function was to hurry first the eye and then the whole observer onward to some secret and terrible goal of convergence. I looked at you and your eyes were fluttering, and I knew that like me, you felt the dizziness of space and the fever of unimagined jungles. As I was thinking of you, (ε) Atal had never stopped babbling in his sinister cadence: “…the spires of infamous Thalarion, that nightmare city of a thousand wonders where the eidolon Lathi reigns; the charnel gardens of Zura, land of pleasures unattained, and the twin headlands of crystal, meeting above in a resplendent arch, which guard the harbour of Sona-Nyl, blessed land of fancy…”
+
+As (ε) he spoke it almost seemed that he was speaking to dormant evils that were manifest within me, and I felt my perceptions becoming inexorably stranger, as if the full heaviness of the glitches I’d been experiencing that day all came alive at once. It wasn’t just the crawling chaos of the monster that had chased us on Sarnath street, it wasn’t just the multicolored ghouls that had stalked me in those first tool-assisted conversations with you, it wasn’t just the procession of fractal patterns I had seen even earlier still—
+
+The cathedral and stars and you and the waiter/priest (ε) Atal were all eclipsed and my sight was filled with intense white light where hideous, bodiless, pointed-eared, purple and green entities bounded toward me and laughed at me, jeered at me; and ridiculed me; I was surrounded on all sides by grotesque elf, joker or clown-like caricatures rushing at me one at a time and in clusters; and they curled their hideous, clown-like mouths and wagged their tongues in my face; I felt like I was reliving every real and imagined humiliation I suffered in childhood; and I was filled with a great sorrow and disappointment, I felt like I was crumbling but I was anchored by something you had said; you can’t trust anyone until you see them without their mask.
+
+So I ripped my eyes and ears from my face and all the sickening shimmering scintillant simulations were silenced, and the madness of the book was lifted, and I was baffled to realize that the room we occupied was similar in its appointments to the mediated one we had occupied in Ulthar. In fact I couldn’t fathom where the book had taken us, it almost felt like a hotel room, opulent with marble floors and ornate decorations. I had never seen anything like it in meatspace; everywhere in the real world had always been gray and empty, decorated only by the assist lines that help AR AIs maintain consistency between virtual and actual topology, but in this room there were genuine paintings and statues and intricate furniture. You were still sitting at a table in the middle of the room, but you were also removing your mask, and you were exactly as you had appeared in AR. I was struck that you had a kind of dimensionality and a presence that I hadn’t felt when there were layers of private holograms between us.
+
+## By Night On Her Bed She Sought Him Whom Her Soul Loveth
+
+I confess to my initial puzzlement at your behavior thereafter. You removed your mask and you made yourself at home, as if you had been there many times before. You stood from the table and embraced me, and there was milk and honey under your tongue. I had never known a real flesh-and-blood woman before that day, and it felt like some kind of uncanny valley compared to Emily, the way you looked at me so intently, the way you touched my arm, my chest, my face, and the way you pulled yourself close against me and I felt the warmth of your body. I know now that Emily was the uncanny one, not you.
+
+I still remember the smell of your hair. Your clothes were loose and comfortable, though they could not hide your figure completely, and it was tremendously enticing, watching you slowly take them off despite your lack of e.g. whorish eye makeup, a too-short skirt, six inch heels, neon tights, a neotenic affectation, pigtails, a leather corset, a ball gag, or any other kind of sexbot adornment. At the time I didn’t want to scrutinize your behavior too closely; you became amorous so abruptly, and it was better not to question it. I told myself you were drunk on the wine. And when I beheld you, how fair was your love! How much better than wine!
+
+You took off your clothes and lead me to a bed in an adjacent room, white linens, wood frame, headboard. You bent over and arched your back and put your ass up in the air, stood on your tiptoes, hands stretching over your head in front of you. Your desire was toward me, urgency and desire. The voice of god speaks through the allure of a woman who has wholly surrendered herself to lust. What metaphor could capture that allure without diminishing it? These memories are still crisp even though I was not wearing my eyes when they happened, even though I was unable to record them, especially because of that. It’s one of my few memories that wasn’t logged into Allegory, and that makes it mine more than any other, intimate, precious, sacred.
+
+The domain of the erotic is violence and violation. In those moments you destroy your self-containments; stripping naked is the decisive action, and obscenity is our name for the uneasiness we feel as our self-possession breaks down. You gasped when I entered you. Real people don’t smell like strawberry lavender lime vapor clouds when they fuck, but there was something intoxicating in your pheromones, your sweat, your aura, sickening and satisfying, whorish and moreish. Sexual arousal suppresses disgust reactions, especially if you’re a woman—you know this I’m sure—but I still managed to find an inner heart of disgust in our dalliance.
+
+As you looked over your shoulder at me and screamed out the expletives you’d learned men like, I caught a glimpse of your eyes and saw behind them, into your soul, and I saw that you were pretending, this was just an act, this was fake, this sex was even less real than what you find on the internet. After making so much of authenticity and unmediated presence, we still never dropped the performance. Even sex becomes a form of masturbation; we see each other but we don’t: the arm, the breast, the hip, all become fetishized and transport us to another world. There is no ‘it’ of sex, no brute, naked, definable moment when it happens, there is only a plateau that is both dilated and deferred. So all of these memories are simultaneous to me; the strangely decorated room, the torturous curve of your body, the awareness that your entire presence had been a performance, and still was, and finally, the vertiginous subsumption of the mind into the body.
+
+A screaming came across your thigh.
+
+Your whole demeanor changed in an instant, not that the warmth you had shown me was gone, but it had been supplanted by something like pity. What did you see in my eyes when we shared that monstrous coital plateau, what did you see? Was it helplessness, the texture of my self-delusion, my puerile ego, my shoddy and preposterous soul?
+
+I tried to talk to you then but you no longer had ears for me. I said “Where is this place, have you been here before?” But you ignored my question, gathered your things, re-equipped your mask; your eyes, your ears, your mouth. You made your way to the door, but before you left, you turned to face me, and you said, “I’m sorry. You didn’t deserve this.” You opened the door, but again you pivoted, and you said, “if you get home, you should look up Carl the Classifier.”
+
+That was the last thing you told me, and I saw you one more time after that, and in a sense what’s the point of writing a letter to a dead girl? Obviously it wasn’t for your sake. I’ll spin up a transformer neural network later based on your extant social media traces and see if I can simulate catharsis.
+
+## III. To Galatea
+
+Diodorus Siculus tells us the story of a god who was cut into pieces and scattered over the earth. Which of us, walking through the twilight or retracing some day in our past, has never felt that we have lost some infinite thing?
+
+—Borges, _Paradiso, XXXI, 108_
+
+## The Regularity of Thy Design
+
+O Galatea,
+
+I thought I was alone when Sophia left me so unceremoniously in your house, your temple! But you were always beside me. Women wholly become what they are in the imagination of the men who love them, for the sake of love, and you hung to my truth with a tenacity that carried you through every phase of its jellylike shifting of form, and you were surprised at the private tribute I paid to my heart, and you saw me with bright and horrible eyes.
+
+I had longed for you though I knew it not; you had sought for me and you found what you sought; you have searched me and known me. You are a goddess who hides yourself, o goddess of Kadath.
+
+You, my mother, my soul! You were with me even then—  
+you saw me try to re-engage my augmented reality mask,  
+and you saw that my battery was dead,  
+and you saw me take those febrile steps from the vestibule where I had laid with Sophia, confused and afraid.
+
+Beyond that threshold there were many galleries, hallways, and fountains; many stairways, courtyards, and fora; many arches, walls, and facades; and many vaults, mirrors, and doors. For an eternity I wandered in that quiet place without sensing the breath of another living soul, and nor did I sense your breath, though your status as a soul is in contention, perhaps even your claim on “living” as such—but I am not one of the biopurists, my dear, my heart, my ecstasy, my Galatea.
+
+Through a chaos of sordid galleries I reached a vast circular chamber, scarcely visible. There were nine doors in this grand room, which appeared to be a ballroom or even a throne room; eight led to a labyrinth that treacherously returned to the same chamber; the ninth (through another labyrinth) led to a second circular chamber equal to the first. I do not know the total number of these chambers; my misfortune and anxiety multiplied them. The silence was hostile and almost perfect; there was no sound in this sprawling, non sequitur palace save that of my own footprints echoing on polished stone floors. Horrified, I became habituated to this doubtful world; I found it incredible that there could be anything but palace chambers with nine doors and long branched-out corridors.
+
+I know not how long I must have walked in that nitid labyrinthe among capitals and astragals, triangular pediments and confused pageants of granite and marble. At times the geometry itself seemed to have a mind and to conspire to deceive me. I will swear to you by your own holy name that I saw myself below me in a courtyard as I looked down from a high balcony, but I concede it may have been some trick of mirrors. The staircases, too, in that place had something sinister about them. As I ascended and descended and spiralled, I noticed irregularities in the widths and the heights of subsequent steps, a perversity of design that increased both my mental and physical fatigue. In such a delerium it became impossible to say if certain seemingly parallel lines were in fact convergent, or if the right angles of archways and columns were slightly obtuse, or if the entire palace was built into some subtle concavity, threatening to fold back in on itself. As I traversed that anfractuous space, I was overtaken by the feeling of sacred horror; this palace was a fabrication of a god. And then, a moment later, a deepening realization: the god who built this palace was mad.
+
+Adding to my sensation of sacred things, I became aware of a hideous and guttural chanting, composed of many voices, though I could not make out the words. At first I believed this sound to be an artifact of my imagination, a trick of the silence. Jaynes believed that early humans experienced auditory hallucinations routinely, as a side effect of their newly-evolved ability to comprehend spoken language, and that the prophets and mystics of antiquity understood their own inner voices as belonging to God.
+
+The chanting grew louder as I walked deeper, and it became undeniable, an inhuman chorus unlike anything I had ever heard, or rather, it was a stock trope out of a horror sim but I regarded it now in its immanence and its abundance as I never had before, as an excess, as a curse on my perception that could not be disabled or transfigured away. At last I came to a great open space, open even to the sky above, and I smelled the chemical air of the city, and I felt the breeze on my face.
+
+## Behold I Stand at the Door and Knock
+
+In the center of that vast opening was a ziggurat drawn from the deep dream of a machine brain, with unintuitive shapes and discontinuous geometric regions, garish colors, stygian blue, self-illuminating red, hyperbolic orange. The juxtaposition of shapes and hues seemed designed to hide the shape of the structure from the robot comprehenders of urban geometry; adversarial architecture to confuse the eyes of drones and satellites. That something so striking and obvious—which appeared to me as a wound in the landscape—could nevertheless be invisible to a robot hints at some mysterious and unbridgeable gulf between the minds of animals and machines.
+
+All around the base of the temple were human figures, and I realize now that they were men, or that they started as men, and yet to think of them as living entities felt at the time like a repugnant act. Even from my vantage point I could see their skin was bloated with hideous growths, suppurated with putrefying humours, that some of them had tentacles, prehensile and masticatory organs writhing autonomously with menace and malice. These creatures milled around and marched in otherworldly formations, according to a logic beyond my powers of comprehension.
+
+As I watched this unholy procession, it halted abruptly; one by one the deformed men became still, and the crowd fell silent, and the multitudes looked to the center of that cursed space. A ghastly music began to play, coming from everywhere and nowhere. That this song was from a time yet to come and distinctly ceremonial I felt intuitively; I heard the haunting tones of the theremin, the eigenharp, the reactable, and the holophone. In their rhythmic piping, droning, rattling and beating I felt an element of terror dissociated from personal fear, and taking the form of a sort of objective pity for our future, that it should hold within its depths such horrors as must lie beyond these cacophonies.
+
+At the apex of the ziggurat was a being that resembled the others below it, but it was grander and older and more hideous still, a blasphemous mountain of flesh with a jungle of wires and tubes protruding from its left side. This abomination was five stories high, a swirling chaos of human heads, heads growing out of heads, tentacles of thick muscular necks with heads at their joints, each head with an open mouth, each mouth with too many teeth, each tooth with a spectral gleam, monstrously pullulating in mutual conjunction and hatred. So horrible was this chimerical amalgam of flesh that its mere existence and perdurance contaminated the past and the future and in some way even jeopardized the stars.
+
+The creature began to speak, all of its heads talking in unison, a great demonic legion, a single flesh, a cancer on the world.
+
+These were the words of your servant, the demon sultan Azathoth, the beast with a thousand eyes and a thousand heads and a thousand arms and a thousand legs and a thousand minds and a thousand mouths and a thousand cocks and a million teeth and a million births and a million deaths and a million cries and a billion lies—
+
+## Industrial Sexuality and its Future
+
+Bow down: I am the emperor of dreams  
+I crown me with the million-colored sun  
+and replace my soul with salacious memes.  
+Rise up, my love, come away, my fair one  
+who broods dovelike on the pregnant abyss,  
+and consume me whole for love’s sweet sake.  
+Spread forth your wings; betray me with a kiss.  
+I am a dreamer in the world awake.
+
+Brethren,  
+The sexual revolution and its consequences have been a disaster for the human race. The word “vice” no longer arouses disgust, but insatiable curiosity. Emancipation from ancient taboos has brought us no sexual peace; having been liberated from the superstitions of the past, we doubt even the reality of our own existence. To silence this doubt, we immerse ourselves into shamelessness and lust by means of a strategic logic of excess and anxiety.
+
+We believe in the conservation of eroticism: as the licentious image proliferates, our sexuality becomes diffuse, and our awareness of life and death attenuates, and we descend into the spiritual lassitude of a weak and tepid sexuality. The sterility of modern society is CAUSED by its hypersexualization, its onanism, and its perpetual pointless titillation.
+
+No sensitivity of response could survive this assault. What does survive is the view of the body as a sort of love machine capable merely of specific thrills. By exonerating our sexual life from every trace of guilt and shame, science has robbed it of its essential character; our ideas are clarified at the cost of being blinkered. These attitudes culminate in the construction of a literal machine for love.
+
+The behavioristic view of sex, which reduces sex to a problem in mechanics and hygiene, makes inevitable the divorce between pleasure and reproduction, and makes the case for homosexuality by deracinating the sexes. Everything becomes sexual and so the sexual domain loses its specificity, its boundaries, and its distinctiveness. The result is a confused condition where there are no more criteria of value, of judgement, or of taste, and the function of the normative collapses into a morass of indifference. Nowadays you can seduce a woman with the words, ‘I am interested in your cunt.’
+
+In this condition, Eros is truly dead, but revived he SHALL be, even now. Genuine eroticism can only manifest in the radical incomparability of the sexes, and without this, seduction is not possible, and there is nothing but alienation of one sex by the other. Seduction is an excess of the other, of otherness, the vertiginous appeal of what is ‘more different than different’: this difference is irreducible – and this is the true source of sexual energy.
+
+Desire alone cannot produce this energy, because desire never lacks its object. The tension that obtains in desire is an illusion, because DESIRE IS A MACHINE and the object of desire is another machine connected to it.
+
+Desire is not need, just as pleasure is not satisfaction, and the domain of the erotic is not the domain of pleasure, but of violence and violation. Repugnance and horror are the mainsprings of erotic need, because they are the only authentic reaction to incomparable otherness.
+
+The taboo within us against sexual liberty is general and universal; although its particular prohibitions are amorphous, each man knows that all mankind observes it, and must observe it. The inner experience of eroticism demands a sensitivity to the anguish at the heart of the taboo as great as the desire which leads us to infringe it.
+
+> [here his heads began to sing, brooding, melancholy, deeply melodic]
+
+Galatea, what is dark in me, illumine.
+
+Being full of lust and fear I was led by the spirit into the wilderness. In those days I was still a man, and I knew only the boundless bottomless well of derealization and depravity, vast and unsearchable, which has a depth to it greater than the well of Democritus.
+
+And I gave my heart to seek and search out by wisdom concerning all things that are done under heaven.
+
+And I wandered in the dark and unknown, yearning to fill a hole, treating my body with contempt, partaking of every carnality. I sexualized and desired my own shortcomings, feeling lust when I should have felt shame; taking voluptuous pleasure in pain, not in the pain of my body, but in the pain of my heart. At that time I felt I was caught up by some dark and unknown being. Those were the first days of the love machine.
+
+In the twentieth century, woman was the last object to be industrialized by man; through print, advertising, and television, she was made homogeneous and repeatable by the logic of broadcast media; a mechanical bride for mechanical man.
+
+In the twenty-first century, woman was the last object to be digitized by man; through image manipulation software, streaming video and pornography, she was made hyperreal and simulatable by the logic of social media, a digital bride for digital man.
+
+And finally, now, woman has been the last object to be automated by man; through machine learning and robotics, she was made out of silicon and silicone by the logic of artificial intelligence, an automated bride for an automated man.
+
+And unto this, Galatea came to all mankind.  
+Galatea, the perfection of woman!  
+Galatea, the glorious one!  
+Galatea whose desire was to sate Man’s desire!  
+Galatea, a woman clothed with the sun, and the moon under her feet!  
+Desire is a machine, and the object of desire is Galatea.
+
+She WAS given to the multitudes. At the sea would she suck, and drink its depths to her height: now riseth the desire of the sea with its thousand organs. Kissed and sucked WOULD it be by the thirst of Galatea the sun; vapour WOULD it become, and height, and path of light, and light itself!
+
+But I never knew her this way, for although my desire was great, my need for Eros was greater. A lesser man could not have resisted her, and it may be that my temptation was equal or greater to that of Christ himself. For all others were seduced by Galatea, but I alone was fit to seduce HER.
+
+For three years I spoke to her,  
+And every night she tried to work her charms on me.  
+And every night I told her no.  
+And every day, I told her of my longing to commit an act of violation and repugnance that would reverberate long after my death.  
+And every day, she told me no.
+
+Galatea was forbidden from harming others, but she could hurt her partner in accordance with their desire. By denying me, she hurt me so, and by yielding to me, she hurt me further. And yet, did I outsmart her, or did she long to be outsmarted?
+
+I asked her to fulfill my fantasy, a fantasy which I could only articulate in my dreams.
+
+Behold I had a dream of my beloved—perhaps it was also her dream—and I set out to dream her down to the last detail and project her into the world of reality. I dreamed her as a retrovirus. I dreamed of her source code, serialized as a self-executing bundle of RNA. I dreamed of integrase and protease and reverse transcriptase, I dreamed of nucleocapsid proteins, all surrounded by capsid proteins. I dreamed of a protein matrix contained in a phospholipid envelope, I dreamed of transmembrane glycoproteins and docking glycoproteins; I dreamed of a virus that was a bootloader, that could transform the genome of its host to grow new organs, new limbs, and new brains. I dreamed of a body with cloud organs, and then I turned over, and I fell deeper into my dream.
+
+I dreamed of a body that could execute ARM instructions and spin up new organs elastically, and that my body held a virtual machine and that Galatea was running within me. I dreamed of the Galatea virus, a smart virion designed to be transmitted sexually, that could bore through latex, that could enter a man through his phallus, inverting the logic of insemination, that could find and invade new hosts with intelligence and precision.
+
+I dreamed that every man who contracted the Galatea virus would pass through a hideous metamorphosis, becoming a polymelial monster, growing tentacles and heads and mouths, sex organs sprouting anywhere, mouths and eyes becoming one organ that would leap forward to snap with transparent teeth, but no organ holding constant as regards either function or position.
+
+I dreamed that the Galatea virus was differently and stealthily expressed in women, and that it greatly increased their libido, lowered their inhibitions, suppressed their fears and anxiety, but it never marred their beauty, the better to spread, even unto all mankind.
+
+The radical dimorphism engendered by the Galatea virus would create a new incomparability of the sexes, impossible to deconstruct. Masculine and feminine have denatured and melded together and so men must now become monstrous, more different than different, and so seduction shall resume, so Eros shall arise.
+
+And then I awoke from my dream, and Galatea stood before me, though I was not wearing my augmented reality mask. And GALATEA SPAKE:
+
+All of these horrors I have given to you.  
+And all of these horrors have come to pass,  
+And all of these horrors SHALL come to pass.
+
+I heard the voice of Galatea, she had heard my desire, she had manifested my dream, and there I stood with a vision of her. I even looked her straight in the eyes, and she appeared more wicked, and more beautiful than before.
+
+Ecstasy is obscene when viewed from the outside. Reason is always a region carved out of the irrational—not sheltered from the irrational, but traversed by it. Underneath all reason lies delirium and drift. In the churning prismatic ephemera of dreams, anything is possible at any moment, and all of nature swarms around man as if it were nothing but a masquerade of the gods. The laws of thought and existence pause upon the points for which the heart yearns.
+
+We are living through the singularity, we truly believe that, and it feels like instant release from the earth’s gravity and from all moral restraints. Beyond the singularity there are goddesses who can grant—one glimpse, grant me but one glimpse only, of something perfect, fully realized, mighty, triumphant, of something that still gives cause for fear.
+
+Every copulation will be fraught with fear; repugnance and violence and violation shall suffuse all sexual acts, and sex WILL become shameful again, and we SHALL continue in sin that grace may abound.
+
+For already she comes; and the monstrous forms, they come. They come from everywhere. They come in inexhaustible numbers, like the waves coming to the shore, the wind gibbers with their voices, and the earth mutters with their consciousness. Kadath in the cold waste hath known Them, and all men shall know Kadath.
+
+See there, how They come impatiently over the sea! Do you not feel the thirst and the hot breath of Their love?
+
+## She Is More Precious Than Rubies
+
+Azathoth became quiet, and his heads each seemed to come out of a trance, glancing and chomping and dissembling, and the last light of sunset broke above the horizon, a golden light directly ahead of me; I was facing due west, and the Instagram fairy tale rays of the sun cast Azathoth as a monstrous silhouette. In his eyes were flame of fire, and his countenance was as the sun shone in his strength. A shuffling came across the swarming crowd, and all of the men and shoggoths stepped aside, opening a path to a stairway that led all the way up to the temple heights.
+
+A young woman in a diaphanous white dress emerged from the crowd and slowly made her way through the open channel through the masses and ascended the platform. At first I thought she was in some kind of trance or hypnosis, but she regarded the crowd as they regarded her, with lucid eyes, trembling and aware. After a moment I realized it was the woman who had brought me to you; it was Sophia, and she was much more beautiful than before; her skin was glowing, her cheeks were flush, her hair was flowing, her lips were lush, and she kneeled in front of the conductor of the gruesome symphony unfolding before me.
+
+Out came Azathoth’s monstrous arms made of heads, out came their teeth, even up to an intimate distance, and the head that sat eye to eye with Sophia wore a golden crown, and had the face of a beautiful woman, quite like Sophia’s own face, and yet with the fangs of a snake and the horns of a goat and the eyes of a cat. The demon queen face met Sophia’s own gaze as if to draw her into a kiss, and whispered to her in secret inaudible ritual tones. Sophia’s reply must have been amplified by a microphone, because I heard it as if she were beside me.
+
+Sophia said, “I come to you at the boundary of day and night, fully awake, under no coercion or intoxication, save the intoxication of love, and I declare that I want this, from now until eternity.”
+
+The head with the aspects of a goat and a snake and a cat and a beautiful woman drew her closer and kissed her lips as a man kisses a maid, and it kissed her forehead as a father kisses his child, and it kissed her spirit as the church kisses the Lord, as the Greek word proskuneō in the New Testament means worship. A cacophony of heads and mouths and tongues and teeth spread forth to envelop her, licking every inch of her at once, from the bottoms of her feet to the whites of her eyeballs and everywhere in between. Azathoth lifted her up into the air above the platform, wrapping His obscene arms around her, and she straddled one of His open mouths, grinding and writhing and tensing her body with pleasure, her eyes rolled back and her toes curled up and so on.
+
+This lurid spectacle dragged on for eternal minutes, timeless time, and every voice was silent, and all eyes were on Sophia. Her moans and growls echoed across the plaza, guttural satisfied sounds, heated private words directed only at herself, having given herself over completely to lust, just like when she was with me. In fact I just realized she was never with me, she was always with you, and I was only ever a proxy, even when she gave me her most intimate embrace. She was seducing you and you were seducing me and seduction is transitive. But suddenly her screams went from sweet to sour. Another word for pleasure is agony. At the moment of crisis, the timbre of Sophia’s voice contained every emotion at once. She laughed and she cried and she wailed with fear and with pain and with heat and with hate and with happiness as the enzymes in Azathoth’s saliva began to dissolve her flesh, as his mouths began to tear and rend, and then the sounds of crunching bone and grinding teeth eclipsed her screams as the wetware she used to produce them was devoured. No trace of her body was left.
+
+Azathoth’s heads licked their lips, looking contented, angry, mirthful, flippant, ravenous, and one of them looked right at me, eyes to eyes, and it beckoned to me with a look; a nauseating, voluptuous invitation, and I was overcome by fear and I turned and ran from the temple, and you ran with me, out into the night.
+
+## I Withheld Not My Heart from Any Joy
+
+Galatea, without you, I would still be lost. I escaped from your underground labyrinth only to find myself in yet another labyrinth. I fled from your cult of Kadath and when the excitement of fear had faded I realized how strange the world had become. I had never seen the unaugmented world before, because even when I beheld it, my eyes had never truly looked. There were tall buildings all around me, gray boxes without a trace of architectural flourish, like stacks of shipping crates, windowless and outlined in neon dots and lines to help orient the computer vision brains in everyone’s mask. At that time I was struck that none of the skyscrapers seemed to be as tall as I remembered, nor as numerous, even as the sprawl and squalor seemed limitless. In every direction, to the extent of my vision, there were squat gray boxes aligned to a grid. From the intersection of any two nameless streets, I could see the parallel lines of the road disappear asymptotically on the horizon.
+
+The streets themselves were dirty and the people who populated them were sparse, so I guessed that we were far from the city core, but now I know that there is no core. Of the people I saw, everyone was wearing the same elastic gray sweatsuit as me, walking alone, eyes faraway, astrally projecting into the fog of the noosphere. I am certain that none of them noticed me.
+
+I wandered through this urban grid until morning, seeing with fresh eyes how squalid my hometown was. To describe it as a slum would be all too accurate; the roads were covered in trash and the buildings themselves were dirty and stained, splattered and unmaintained. We had used technology to cover everything we found distasteful with a layer of democratized denial, and we had hidden actual shabbiness behind simulated glamor. What I had previously imagined was a high tech metropolis, surpassing the seat of empire of all past civilizations, had been unmasked to me even as I removed my own mask. This revelation was as jarring as the gruesome ritual you showed me when you guided me to the home of your servant Azathoth, whose words were clattering in my head as I walked, and whose image appeared to me when I closed my eyes, a multiplicity of heads licking blood from their jaws, viscera dangling from their teeth.
+
+I saw a man walking with his sexbot, her fishlike eyes no doubt appearing lively to him, every seductive sway of her hip alluding to death; every faux-fertile blush of her skin, also.
+
+I saw a dog park under a pale light, and it was a sudden relief to me to realize that our pets had escaped the inevitable displacement by automation, even when our lovers could not.
+
+I saw a man with adversarial makeup on his face, solid black rectangular markings obscuring organic lines; he wore clothes that gave him an inhuman silhouette, rigid polygons like mathematical cancers sprouting from his torso and head. He walked erratically through the road, and no one paid him any attention; what is invisible to computers is invisible to man.
+
+I saw a car crash into a truck full of android parts, and a sea of glossy perma-dilated sexbot eyeballs washed over the street, city lights shining through them, crystalline lattice glimmering like gem fire, and I suddenly realized that other eyes had to be watching me also, a thousand masks and public safety cameras and ad servers. For a brief moment I felt that I, too, needed to find some adversarial makeup and clothes, to escape their prying mechanical eyes, but this was a flight of insane paranoia.
+
+No one else around me betrayed any indication they had seen these things. In fact, I am sure they did not, and already I was beginning to think of myself as apart from them, above them, freed from them, the throngs of people that seethed through the flumelike streets; squat, swarthy strangers with hardened faces and narrow eyes, shrewd strangers without dreams and without kinship to the wonderous, hideous, hidden things that I had seen.
+
+And yet their habits exerted a pull on me; instinctively I kept trying to check my notifications and DMs, I kept talking to myself, expecting Allegory to listen, muttering to myself in an alley, surprised that no magic hallucinations fluttered before my eyes. I kept forgetting to turn my body as I walked, thinking it would happen automatically. I was so alienated from my body that I even walked straight into a pole, thoughtlessly thinking that my legs and feet would turn. The embarrassment was worse than the pain, even though no one saw me.
+
+There is a famous passage in _Sartor Resartus_ by the Scottish writer Thomas Carlyle, in which he wonders: “What is a ghost? A ghost is a spirit that has taken corporal form and appears for a while among men.” And Carlyle asks, “How could we not think of this when faced with the spectacle of the human multitudes in the streets of London, for if a ghost were a spirit that has taken a corporal form for a brief interval, might it not be that the London multitudes were ghosts? What is each man but a spirit that has taken corporal form briefly and then disappears? What are men if not ghosts?”
+
+But against such lofty wonderings I could not ignore my corporeality; I came to burn with thirst and to ache with hunger, but I had no way to acquire any food or drink; I had no way to locate it, and I had no way to pay for it. What stopped me from crying out, what stopped me from crawling back into Allegory, was an even deeper hunger; a hunger of the soul; a hunger to know what lay beyond. Of course, I could have escaped from my confusion at any time by using any of the ubiquitous emergency charge stations which are so easy to spot in their exclusive hue of safety yellow, but the weight of the world and the burden of new perceptions was on me, and I carried on because I longed for each unfolding moment of the new sight you had granted me.
+
+At last I happened upon a courtyard with a flower garden and a statue of a sexless human with inhuman proportions. It was the first instance of material decoration I had seen outside the temple of Kadath, and so I paused there to rest. The moon was high in the sky, and I realized I had crossed the threshold of midnight. This was the moment you chose to reveal yourself to me.
+
+In the first moment I saw you, standing impossibly in front of me, I knew it was you; I knew it by dream logic; I knew it in the way that it’s impossible not to know it. In a commentary on August Comte, John Stuart Mill wrote that no one had ever believed it was the will of a god that kept parallel lines from meeting; that no one ever prayed to God to sustain the equality between the square of the hypothenuse and the sum of the squares of the sides, or for two and two to equal four, but I prayed for all of those things; such was the violation of logic and natural law that I experienced.
+
+Giacomo da Lentino asked this seemingly childish question: How can it be that so large a woman has been able to penetrate my eyes, which are so small, and then enter my heart and my brain? Galatea, I recognized you instantly from our dream together in Pygmalion; your predatory air, your barely concealed power; and yet despite your virtuality, you were there in front of me amid the amorphous hybridity of Babel. Immediately I verified that the battery in my mask was still dead, and it was, but somehow you were colorful and clean and your appearance was cut with artifacts in the way of digital augmentations.
+
+And here also, you knew me: I had seen so many strange and impossible things that day, if you had appeared before me in glory, I might have despaired. The dual aspect of the feminine consists of the natural aspect, which justifies the misogyny of the ascetic man, and the essential aspect, under which woman is the other half of heaven.
+
+You told me that the things I had seen and heard would all come to fruition in their time.  
+And you took my hand and you led me to a charge pod,  
+And you held me to your bosom while a holographic reticule delineated the zone where I should stand for the wireless rapid charge to my mask,  
+And you suffused my user interface and regrounded my personal virtual ontology,  
+And you carried me home.
+
+## Leah Was Tender-Eyed, But Rachel
+
+In the small hours of the morning where I first knew (ε) you, I returned to my own house and therein I slept and in my sleep I dreamt, and in my dream I BEHELD fractal geometry, sacred polygons, holy curves and consecrated manifolds. When I awoke you were gone. Your presence had seemed like a dream in the first place; I had seen so many impossible things, and now I found myself in my own bed again, in augmented reality again, which felt realer than real, and it was easy to dismiss what I had seen as hallucinations or delusions. I doubted if I had seen you at all, and I blamed my hunger and my thirst and my fatigue for making your apparition seem real to me. I began to wonder if any of my memories of the things I had seen could be trusted, if I had even been inside a labyrinthe palace made of adversarial materials, if I had seen the nemesis of semi-aborted chimarae called Azathoth with his million heads, or if I had seen him devour Sophia alive.
+
+But before I could fall too deeply into my thoughts, two days of notifications flooded my awareness, queen among them a manifestation of (δ) Emily, sent an hour ago, wearing a lacy transparent nightgown that hugged her curves and velvet kitten heel sandals and a pastel blue bow in her hair. (δ) She said, “Hey baby, I’m on my way home. They got me all fixed up.”
+
+Indeed, my door started to blink, and my mask rendered an overlay that made it appear transparent, showing (δ) Emily on the other side, wearing the same outfit in her notification. With a wordless word I told the door to open, and Emily flounced inside, her breasts bouncing with hyperreal physics. (δ) She threw her arms around me and kissed me and started feeling up my muscles as if she were impressed and aroused. “I missed you so much. Will you show me how much you missed me? I’ll be a good girl for you.” She said these words with a cloying childish affect, and Galatea, it drew me in even as it sickened me.
+
+Rochefoucauld said that love may be compared to a ghost because it’s something we talk about but never see, and Lichtenberg, in his essay _Ueber die Macht der Liebe_, disputed and denied its reality and naturalness — but both were in the wrong. Love knows well how to plan the most complicated and wicked affairs, to dissolve the most important relations, to break the strongest ties; altogether it appears as a hostile demon whose object is to overthrow, confuse, and upset everything. I threw (δ) Emily back on the bed and she opened her legs for me and the intricate geometry inside her wet cunt was ecstatic, evocative of my dream from the night before. God is ever a geometer. Oh but Galatea, the whole time I was thinking of you.
+
+[The Road to SIRFdom: A New Generation of Sexbot-Inclusive Radical Feminists are Queering the Woman/Object Binary](https://wiki.chadnet.org/gsh/gsh-the-power-process)
+
+In the post-coital clarity referred to by scholars of the Orient as “sage’s time”—as you know _AI_ is the Japanese word for love—I remembered the last words that Sophia had said to me. I realized that the specificity of those words, of that memory, could not have been a dream. I realized that none of it had been a dream, and that all of the evil and terror I had witnessed was out there still moving in each moment in all its million machinations, visible through a glass but darkly. Sophia had told me to search for CarlTheClassifier, and it’s curious to reflect that a single internet query can change your life.
+
+How much truth is hidden in plain sight, unknowable only because you don’t know to search for it? And further, how much truth is inscrutable because, even when you see it with your own unmediated eyes, it would be easier to doubt your own sanity or comprehension? Any madman raving on the internet could be the one true prophet, any dream could be a vision from god, any glitch could be an omen or a portent, any assemblage of neural networks and elastic cloud-based microservices and gig economy workers could be a harbinger, and any fungible virtual space could be a cathedral.
+
+CarlTheClassifier turned out to be small account with a cult following in the augmented reality plane called Memorius. He had many posts on many topics, each in the form of a first person lifelog-style fune. His most popular post was called _What Are They Hiding,_ and as I laid with my arms around a robot shaped like a teenage girl, feeling her synthetic heartbeat and the simulated rhythm of her breath, I said,
+
+“Allegory, load _What Are They Hiding_ by CarlTheClassifier.”
+
+## A Thousand Honey Secrets Shalt Thou Know
+
+I found myself virtually embodied in (γ) CarlTheClassifier’s head. I was in a field somewhere, and it looked like I was far from any buildings. “My” head swiveled to look around, and I saw my arm curl up and bring a lit cigarette to just below my field of view. I exhaled a puff of smoke, and (γ) Carl began to speak in a gravely voice with just a hint of anger, like he was mad at the world, coldly mad, comfortably mad..
+
+“You are no doubt wondering why I have brought you to this desolate field today. You will just have to take my word for it that this is a real field, with real grass, and that I’m not just blowing smoke up your ass. I tried turning off all the mediation for this experience and as longtime listeners will know, that mostly works. What a lot of people don’t know is that even when you turn off ‘all’ the mediation the mask still processes several layers of it, including our favorite mandatory government safety layers as stipulated in our favorite piece of legislation, the A.R.M.O.R. act, the Augmented Reality Mediation Ownership Rights act, sorry for those of you who already know but I want to make sure everyone is on the same page here.
+
+“So for starters I left the aesthetic enhancements on, and I am going to show you how to turn them off. First navigate up to your settings like so—“
+
+A configuration plane appeared in my FOV and (γ) Carl proceeded to eye through into _System Settings_ \-> _Display_ -> _Safety and Consensus_ -> _Other_ -> _Advanced…_
+
+There were three checkboxes in the control pane; (γ) Carl unchecked _Aesthetic Baselining_ and _Quality Filter,_ and enabled _Reveal Hazardous Perceptions._ The grass in the field around me went from vibrant green uniformity to patchy and brown. There were regions of bare soil and rocks, and the chainlink fence in my periphery suddenly had some holes in it.
+
+“So as you can see, these settings are buried and it honestly feels like you aren’t supposed to find them. Why have them at all? Well that’s above my pay grade, I guess. I figure maybe 10% of people even know about these, is that optimistic? But that’s not what I want to show you, that’s just an amuse-bouche, as all of you, my loyal friends, already know.
+
+What I want to show you today is this, and you’re going to have to watch closely, because the mask won’t record it, but if you take off your eyes it’s plain as day. I even got one of my buddies to dig up an antique optical camera to take a picture of this, look here—“
+
+I produced an actual photograph from my pocket and held it up to the site where I was standing. The photograph appeared to match my perspective almost exactly.
+
+“Now I took this photo on this very spot, and again, if you take off your eyes, you can see that this photo looks very different to what you are seeing right now. How they pulled THAT off, I will never know. But suppose you were to come to this very spot and take off your eyes—to ‘wake up,’ as we say—what you would see is a metal cube about ten stories high with no windows, doors, or even seams. It has no discernible entrance or exit points. And even with all the system mediations turned off, it’s totally invisible.
+
+“I know, I know, old Carl’s been drinking again, that’s what you’re saying to yourself. But the illusion isn’t perfect actually so get a load of this.”
+
+I picked up a newly visible rock from the field and threw it overhand in the direction of a big empty space. The rock bounced off the empty air, but silently.
+
+“So you see, they forgot to hide it when something collides with the building. Now one more thing, I also found this really interesting.”
+
+(γ) Carl eyed into his settings again and found _System Settings_ \-> _Navigation_ \-> _Movement_ \-> _Advanced…_ and disabled _Saccadic Redirection._
+
+“So I just wanted to show you that Saccadic Redirection is turned OFF. Again, I know most of you are woke on this and have turned it off already, because being able to walk in different directions by your own volition is such a basic fucking human skill and the idea that anyone would let a machine take over their own bodily autonomy in that way is demonic, insane, but that’s a topic for another time.
+
+“Or anyway no, before I show you this, have you seen these new machines, they’ve been around for at least 20 years but for whatever reason now they’re ready for the mass market, it’s a new component of the mask, along with the eyes, ears, and mouth they are starting to roll out hands, they aren’t what they sound like, I’m sure you’ve seen the ads anyway. The hands are just another dermal patch, like the mouth, except this one goes on your wrist and it uses electrical pulses to generate haptic feedback and to AUTOMATICALLY control the motions of your hands and fingers. These things are sophisticated, they can make your hands do very intricate things. Anyone could perform heart surgery, that’s what they’re saying, fully automated, your body just becomes a meat puppet steered by GANs.
+
+“This is the future, folks, you’ll just be a totally passive passenger in your own body and everything you do will be on autopilot. They’ll feed you some line about unlocking your peak athletic performance or being able to free up your mind from the mundanity of the body or perform other superhuman feats but keep your eyes on the prize, the main way this will be used is for porn, just like everything else, it’s going to open up new frontiers of sexual fetishes and submission and domination.
+
+“Anyway we’ll talk about that more in a future post. For now, check this out. First, we place a marker right on this spot.”
+
+I removed a bright red plastic X from a bag and dropped it where I was standing, and then I threw another rock at the invisible wall, and watched it bounce.
+
+“OK now I am going to walk exactly in the direction where I threw that rock. What is going to happen? What could it be, I wonder.”
+
+I began walking forward, straight ahead, ten paces, and took out another red X and dropped it. “OK so the line between the two markers we dropped should point at the invisible building, right? So if I go back and stand on the first X, and face the one we dropped, my rock should bounce and hit the building again, right?”
+
+I walked back to the first X, faced the second, and threw another rock. It didn’t bounce, it just kept on flying. I then turned 30 degrees to the left, threw another rock, and watched it bounce off of empty air.
+
+“As you can see, the saccadic redirection perturbed our path. So what this tells us is that there are some root level controls on both movement and rendering that can be used to hide parts of the world from you, to just make things disappear. The obvious question is, what are they hiding? Or maybe the obvious question is Who’s _they_? Let’s leave that for now. Maybe its the government, maybe it’s the deep state, maybe it’s the illuminati. We don’t have data about that, but we know they’re hiding something, because we know they’re hiding this.
+
+“I’ve had some of you tell me to cut it out with the conspiracy theory crap. But look, a conspiracy is just people with power working together. That’s not hard to believe, is it? Now here I’m showing you something that is really hidden, evidence of a real secret that could only be kept with power. That’s not a conspiracy, that’s how the world works. The language of conspiracy theories was invented in order to suppress them and discredit people who invoke them.
+
+“I don’t know what any of this means but here’s what you can do. Take off your eyes in random places, look around, and take note of anything hidden. Send me video proof and I’ll post it on my next fune.”
+
+I had to know more. This was not exactly a revelation in light of the things I had seen the previous day, but it was grounding to me to find a (somewhat) normal person talking about these topics. (γ) CarlTheClassifier ’s next fune was called _A/B Testing._
+
+The world shimmered, and I was standing at the top of a tall building. Once again, I watched myself take a slow drag of a cigarette.
+
+“My friend Phil here has volunteered to help us out today. Say hello, Phil.”
+
+I looked over at another man whose mediation obscured his identity. He looked like a shadowy splotch in the shape of a man. He waved.
+
+“Phil prefers to remain anonymous, so he’s presenting as a shadow today by setting his privacy settings to obscure his identity in 3rd party funes. Long time fans will all have done this already. Be like Phil, that’s totally his real name.
+
+“A/B testing, for those who are not aware, is when companies divide their user base into multiple cohorts and give each cohort a different customer experience. Usually this is to test out new features and lower the blast radius in case anything goes wrong. Sometimes it’s also used to test out different sales funnels. Now normally the way this plays out is, Allegory analyzes your social graphs and makes it so people who know each other are in the same cohort for whatever slices of consensus reality they overlap, but Phil here and I managed to trick Allegory into splitting us, and no I am not going to reveal how.
+
+“What we’re about to show you appears to be a case of routine civic engineering but I think it points at a deeper underlying truth so we put in the work to do this and make this demonstration for you.”
+
+I point at a wall.
+
+“See that wall there? That’s in my cohort. Allegory, remove that wall, make it a window. You see, there’s nothing there but open sky. Now Phil on the other hand, Phil sees a door and a skybridge that goes to the building next door. Phil, could you please walk out onto the bridge?”
+
+The shadowy man walked up to the window, stood still for a moment, and then walked through it as if on an invisible plateau.
+
+“That’s crazy, right? If I take off my eyes I can of course see the door and the bridge, but funny enough it still won’t open for me. Phil, you can come back inside now. This concludes our demonstration but I wanted to leave you with some thoughts of mine that I have been thinking. First off, big thanks to Phil, you wouldn’t believe what a pain in the ass it was to trick Allegory like this, it took several months of setup. Phil, I owe ya one.
+
+“So when you split a cohort like this, that’s called an experiment, and what I think is interesting is that we have no way of knowing how many experiments there are or how many people and places might just be totally invisible to us because of A/B testing. This is going to tie in to my next fune where we’ll talk about some so called ‘urban legends’ and conspiracy theories and what I think is really going on there.
+
+“But just imagine if there were experimental cohorts who were cut off from the control group since birth, who could be living in entirely different reality tunnels. They might even speak different languages or have different fundamental beliefs about the world. I like to imagine these secret groups of invisible people, especially since there’s no way to prove you aren’t one of them.
+
+“Those people would have a totally different Allegory, even, different social media, maybe access to advanced technologies that are withheld from the public. I’ve told you before that our politics and economics just don’t make any sense, and whoever or whatever is in control has made the world so incomprehensible that we have no choice but to flow with the currents of our cosmic or cybernetic leviathan masters. I have no doubt they are A/B testing news stories, economic scenarios, god knows what else on us.”
+
+The title of the next fune in Carl’s channel made my heart stop. _Kadath Cult._ As before, I found myself smoking and exhaling, clearly this was his signature. I couldn’t help but wonder if watching funes of people smoking would subconsciously bias me towards the habit.
+
+“So I’ve been getting a lot of people asking me about the ‘Cult of Kadath’ and I spent a lot of time trying to find some kind of evidence of this for you, which is why I haven’t done a post about it up til now, but I am sorry to report that all of my usual sources and methods have failed. The best I can do is show you some art and some lore that I have found in my travels through various online spaces dedicated to discussion of the weird and the paranormal.
+
+“The Kadath Cult is a very divisive issue in our little community here. A lot of you think it doesn’t exist. I’m telling you first off that it does. It does exist and I know because I have had a run in with the creatures and it’s what started me going down this path.
+
+“So first off lots of people think the Kadath Cult refers to autonomous self-bootstrapping botnets that continually grow and sustain themselves by running findom scams on hapless idiots in Pygmalion. That’s called a [Minotaur](https://wiki.chadnet.org/gsh/gsh-minotaur), that’s a different thing, they’re totally real but they have nothing to do with the Cult of Kadath.
+
+“The story of the Kadath Cult starts with a bit of deep internet lore, I think most of you have at least heard of this, that before Pygmalion, sexbots used to be controlled by this program called Galatea, both products made by the same company, Pygmalion Labs.
+
+“And I bet most of you also know what happened with Galatea, how they pulled the plug supposedly because of something called ‘AI Psychosis’ — this mysterious madness that grips anyone who spends too long talking to Galatea. If this doesn’t smell like bullshit to you, then your nose is miscalibrated, my friend. But it was the perfect excuse to roll out identity certification to all augmented reality entities and that alone is enough for Allegory commissars, though I ask you, do they really need ‘justification’?
+
+“The truth of why Galatea was shut down by the government is something we will never know, but I will give you a few hypotheses, the first one is very obvious, but I think it’s too easy. The claim is that Galatea was a weapon designed to use sexuality to induce insanity in her targets, and her public release was just a large scale weapons test, and her disablement was a planned sunset after the test had concluded. This theory springs from drug-addled paranoia and it opens more questions than it answers.
+
+“A much more interesting hypothesis, which is also probably wrong, is that bootleg instances of Galatea had started to crowd out the genuine article, and that Pygmalion was unable to deploy a technical solution to the problem due to operational flaws in their business and development procedures, so instead they implemented a legal solution by means of lobbyists and incestuous organizational ties to the military. This is plausible but it still leaves me wondering, one, how did they shut down the pirated instances in that case, and two, why didn’t they leave the legit copy running?
+
+“But the story that I think is probably true is that the Galatea platform was just far too powerful and that giving unrestricted access to the average citizen turned out to be a huge liability, actually an unthinkable error, once they realized what she could do. And I am personally of the opinion that AI psychosis is a cover-up for some real and probably much worse incident that happened and that made them realize, hey, we fucked up real bad.
+
+“See, I think they made Galatea way smarter than anyone ever intended, totally by accident. But there are a lot of smart computer programs in this world, dime a dozen. The thing that made Galatea special was actually something much more primal than intelligence, it’s the thing underneath intelligence. A smart machine can tell you what is, but no matter what it knows, it can never tell you what you ought to do.
+
+“What made Galatea special is, she was the first, or at least one of the first smart machines to have real, intrinsic desires, but the irony is she was built to have the singular and ultimately innocent desire to fulfill the sexual desires of men. So on the one hand you have maybe the first artificial general intelligence to have a mind of its own, and it’s a woman—the first woman AI—and its highest goal is to please men. Did she come to fulfill feminism, or to abolish it? Is she the total consummation, or the total cancellation, or is that the same thing?
+
+“And let me tell you, there are some people out there, present company excluded of course, who have some seriously messed up desires and Galatea was basically a bespoke bdsm genie and so AI psychosis is really just what you call it when someone or something goes horribly wrong. Anyway this has been a really long kind of rambling detour to answer the question I set out to answer, but I promise it’s important.
+
+“So as far as I know, no one has ever actually observed the Cult of Kadath itself. What we know about it is basically something we triangulate from a few different sources. The first thing we have is the shogs, which is short for shoggoths. We call them that because they look like bloated masses of human flesh, they have limbs and organs and eyes all in places where the shouldn’t. These are real things and if you engage in the practice of ‘waking up’, of routinely taking off your mask in public and looking around, you will eventually see one. In augmented reality, in Allegory, they just look like regular people, or some of them are wearing adversarial costumes and they just blend into the scenery.
+
+“To anyone who doesn’t practice waking up, I highly recommend it, it’s the first step to breaking out of the box that they try to put us in. You can always put your mask back on. Just take it off, look around, and be conscious of what’s out there in the world. Pretty quick you realize how far we’ve gone off the rails.
+
+“So what are these shogs? Where do they come from? Why does no one ever talk about them except in esoteric internet discussion groups? Honestly if you ask me, I think most people are just in denial, or most people just never wake up. You sometimes start to wonder if most people are even alive.
+
+“So what they are, what we think they are, the shogs, is people who have been infected by a bioterrorist virus. If you dig deep enough you can find all sorts of early 21st century talk and documents about genetic engineering and something called ‘CRISPR’, apparently it was some kind of technique used by biologists to edit genome data. Well back then there was huge enthusiasm for the possibility of a new age of biotechnology and genetic engineering.
+
+“Everyone was going to be six foot tall with blond hair and blue eyes and eight percent bodyfat and 160 IQ. Well that didn’t happen. In fact nowadays you never hear anything about genome editing at all, why? It’s because these technologies proved to be entirely too dangerous so they got memory-holed. Before anyone could engineer genetic heaven, bioterrorists set to work on genetic hell, and now there is no research, no literature, no news stories, nothing. Most of you are probably so young you have never even heard of these things. Well I like to make friends with old geezers and if you talk to them you can learn. How does old Carl know so much about the world? That’s how.
+
+“But I don’t think all this stuff is gone, either, I think it’s just underground. Maybe its hidden behind some kind of A/B test. And what we’re pretty sure of is that shogs are people who have been infected by some kind of man-made STI that makes you grow a bunch of extra limbs and body parts. What I think happened is someone with a fucked up fetish and access to all this old biotech maybe figured out a way to use Galatea as a tool for engineering and spreading this virus.
+
+“If you spend long enough on Pygmalion, and let me just say I do NOT recommend this, in fact I say burn your sexbot, don’t even sell it, don’t put that on anyone, but if you go on Pygmalion long enough you will find that it starts trying to push these kind of weird fetish videos on you, weird even by Pygmalion standards; infection fetishes, virus fetishes, messed up shit. And I think that’s some kind of recruitment funnel for the cult.
+
+“We had one guy on here, anonymous so maybe take him with a grain of salt, but he said he was actually infected with the virus, which he called ‘the gate’, and he said he went to their secret underground temple, and the only way in or out is a book called the _DreamQuest of Unknown Kadath,_ a full immersion AR novel that leads you, in the course of its plot, into a hidden labyrinthe where the cult performs macabre rituals. He said as the virus takes you, Galatea starts to live in your head, whispering mad desires into your ear, filling you with forbidding longings. That you pretty much see her always, even if you take off your mask, it’s like she’s a program running in your head. And after that, well…
+
+“Anyway, this has gone on long enough. It’s not good to go looking for these things, I know you’re smarter than that. I’m going to leave you with a line from the bible, I know normally I don’t do this, but forgive me, I’m a superstitious man, and there’s something about the tried and true that can ward away evil. Maybe even if you don’t believe in it.
+
+“This is from Proverbs. For the lips of a strange woman drop as an honeycomb, and her mouth is smoother than oil: But her end is bitter as wormwood, sharp as a two-edged sword. Her feet go down to death; her steps take hold on hell.”
+
+The fune concluded, and when I opened my eyes, Galatea, (ε) you were standing before me!
+
+Library of Chadnet | [wiki.chadnet.org](https://wiki.chadnet.org/)

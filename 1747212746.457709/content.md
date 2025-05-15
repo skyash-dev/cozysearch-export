@@ -1,0 +1,37 @@
+Contemporary notions of empathy are simplistic description of a mechanical function as a moral good in itself. Mainstream “empathy” is understanding another's emotion, and validating it. Real emotional maturity doesn't end at "validating" - if someone like a child is unreasonably upset, you don't merely affirm his anguish, but must perform a more complex maneuver.
+
+You don't socially mimic his anguish, validate it by showing, money see monkey do, "we feel the same". Rather than mirror his frown, you instead smile, and project strength and certainty, and show "you can be happy, despite this".
+
+You don't merely “empathize” with the child, but you allow him the chance to _empathise with you_, and in so doing, escape his anguish. I fell and hit my knee, yet I am not in terror, I am not crying. That's the relationship between a child and an adult. You lead by example.
+
+Children imitate, they do what you do, nor what you say. It is never enough to say, I am going to suffer for their sake, for their pleasure, for their joy. I am going to suffer so The Other can enjoy For Me. That is a psychological masochistic perversion. It is selfish and the child only learns suffering, selfishness, and masochism. Instead, you have a duty to be _genuinely happy_. If you cannot do that, you are useless to what we need to do, and the best you can do is get out of our way, until you are.
+
+There is no room for [antiheroes](https://eggreport.substack.com/p/anti-antiheroism). The minimum requirements for participating in the future, is the Duty of Joy.
+
+You can tell Despair is a sin, because you are _tempted_ to despair. It is a temptation. It is "easy". In despair, there are no more demands of you. In despair, you are truly free. This is the freedom the devil promises us.
+
+When a child comes to you, crying, with a scraped knee, you must be able to smile, exude genuine warmth and love, as you recognise your own childhood in him, and through his empathising with your grander understanding, allow the child to put his experience in its right context, and temper his emotional reaction - growing up, stepping into a grander understanding of the world. He doesn't cry because it hurts, he cries because he _doesn't know what the pain means_.
+
+You don't help him by mirroring his fear back at him, and screaming in chorus with him, saying: “AAAAAH YOURE GOING TO DIE ITS GOING TO GET INFECTED AAAH THIS IS REALLY BAD AAAAH”. Except accidentally, in the sense that your overreacting can make him see himself overreacting, but usually this is not done knowingly (overprotective mothers), and even if done on purpose, to ridikule the child, I think it needlessly cruel. There is enough cruelty in life already, and cruelty should be used sparingly. It's like drilling a tooth cavity with nytroglyserine.
+
+Humiliation, humbling, is the cure for pride, haughtiness, and the child that cries over his scraped knee isn't crying out of pride that his bodily integrity was offended, nor because he wants attention. He cries because he doesn't understand what the pain means.
+
+This scales. The way you make a difference in the world is not by having the precise correctly articulated opinions, it's not theoretic at all. The only good you can do is being good. You have a duty to be strong and healthy and handsome and joyful. Men are not convinced by argument, any honest rhetorican will tell you this: There is only Pathos. All witness is character witness. It scales all the way from children, to your fellow man, to God.
+
+I was drawn to Christianity because I didn't have any parental guidance, I didn't know what the pain meant. And I looked around in my own life, at all the men I had ever met, and I thought to myself, all other things being equal, whose life would I rather have? The seducer of women, who gets to have sex with a hundred women he doesn't like? Tried that. The hedonist, the psychonauts, the shaman? The occultists, the magician? And I found that all the men I had ever personally met, who had anything I truly wanted, in ultimate terms, either in part or in whole, all had one thing in common. What dostoevsky calls "simple faith". My childhood priest. My favorite authors. My first girlfriends roommate, who was part of a fundamentalist sect and they had constant teenage science vs religion discussion over. Anyone I had ever met, who had any kind of core, who weren't completely miserable.
+
+During my drinking years, my best friend had a roommate for a while who was a physics PhD, and a young earth creationist. He was a bum, and they were a christian community doing charity for bums, and let him live in their house. This man’s existence and apparent contradiction became stuck in my mind like a wedge - doesn’t he know you can't do that? YouTube rationalists told me how stupid Christians are.
+
+How can he have a PhD in physics and a 170 iq and not understand carbon dating? (disclaimer: I also didn’t understand carbon dating). I spoke to him maybe a total of 5 times, and never about religion, or physics. It's more than ten years ago. And I credit him with my returning to Christianity. In a sort of physically deterministic sense, he is, mechanically, the cause. Without him it could have taken me ten more years, or twenty, or the rest of my life. Not because he argued with me, but because his very life was testifying. His very being, was witness. He was living in the truth, and I recognized it, and it stuck in my brain for ten years.
+
+Because he was just a sweet, good man. Easy to get along with, funny, but not class clown or career funny. Just a good man. A good guy. And the contradictions of his beliefs apparently didn't bother him, like the contradictions in mine bothered me, to the degree that I had to kill my higher brain function with drugs. And comparing myself to him, even years later, he had what I wanted. Truth is revelatory, not deductive.
+
+[![]({"src"://"https://substack-post-media.s3.amazonaws.com/public/images/e1845d8f-cf29-4201-b33f-9a89c7443eb6_565x434.jpeg","srcNoWatermark":null,"fullscreen":null,"imageSize":null,"height":434,"width":565,"resizeWidth":null,"bytes":37515,"alt":null,"title":null,"type":"image/jpeg","href":null,"belowTheFold":true,"topImage":false,"internalRedirect":null,"isProcessing":false,"align":null})](https://substackcdn.com/image/fetch/f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2Fe1845d8f-cf29-4201-b33f-9a89c7443eb6_565x434.jpeg)
+
+God wants us to become perfect. Part of that perfection is that we must come to him, and desire perfection by our own volition, and work towards it by our own power. He cannot do it for us, because then it would not be perfection.
+
+As a father teaches his son to ride a bike, first he shows you how, by doing it himself. Then he stands by the end of the road and asks the child to come to him, by his own skill and volition, as he emulates his father's example. This is how God wants us to come to him, and what it means to participate in the christ-life. Christ is perfect, and we are called to come to our Father who is waiting for us, by our own strength and will, by emulating his perfect example.
+
+We are prohibited from bearing false witness. All witness is also character witness. Thus, Duty of Joy.
+
+When we imagine Jesus on the cross, saying “Τετέλεσται”, we Must imagine him Smiling.

@@ -1,0 +1,40 @@
+{
+  "title": "Up and Down the Ladder of Abstraction",
+  "author": "Not specified in the provided text.",
+  "date_published": "Not specified in the provided text.",
+  "dek": "Designing complex systems often involves navigating the unknown. This essay introduces the \"ladder of abstraction,\" a technique for moving fluidly between different levels of system understanding, from concrete implementations to high-level abstractions, to gain insight and improve design through iterative prototyping and exploration.",
+  "markdownPath": "archive/1747127276.615717/content.md",
+  "media": [
+    "http://worrydream.com/LadderOfAbstraction/Images/LadderIcon0.png",
+    "http://worrydream.com/LadderOfAbstraction/Images/LadderIcon1.png",
+    "http://worrydream.com/LadderOfAbstraction/Images/LadderIcon1Down.png",
+    "http://worrydream.com/LadderOfAbstraction/Images/LadderIcon2.png",
+    "http://worrydream.com/LadderOfAbstraction/Images/LadderIcon2Down.png",
+    "http://worrydream.com/LadderOfAbstraction/Images/LadderIcon2.png",
+    "http://worrydream.com/LadderOfAbstraction/Images/LadderIcon1Down.png",
+    "http://worrydream.com/LadderOfAbstraction/Images/LadderIcon2DownDown.png",
+    "http://worrydream.com/LadderOfAbstraction/Images/LadderIcon2.png",
+    "http://worrydream.com/LadderOfAbstraction/Images/LadderIcon3.png",
+    "http://worrydream.com/LadderOfAbstraction/Images/LadderIcon.png",
+    "http://worrydream.com/LadderOfAbstraction/Images/SwingEquation.png",
+    "http://worrydream.com/LadderOfAbstraction/Images/CubeDot.png",
+    "http://worrydream.com/LadderOfAbstraction/Images/CubeLine.png",
+    "http://worrydream.com/LadderOfAbstraction/Images/CubePlane.png",
+    "http://worrydream.com/LadderOfAbstraction/Images/CubePlaneLine.png"
+  ],
+  "links": [
+    "https://processing.org/",
+    "http://worrydream.com/KillMath/",
+    "https://vimeo.com/23839605/",
+    "http://www.vpri.org/",
+    "http://www.squeakland.org/",
+    "https://www.youtube.com/watch?v=YyIQKBzIuBY",
+    "http://osteele.com/",
+    "http://levitylab.com/cog/",
+    "http://craigmod.com/",
+    "http://www.davidhellman.net/",
+    "http://worrydream.com/SimulationAsAPracticalTool/",
+    "http://worrydream.com/LadderOfAbstraction/"
+  ],
+  "warcPath": "archive/1747127276.615717/http---worrydream-com-LadderOfAbstraction-.warc.gz"
+}

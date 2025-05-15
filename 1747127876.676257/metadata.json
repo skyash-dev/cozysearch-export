@@ -1,0 +1,37 @@
+{
+  "title": "Kill Math",
+  "author": "Bret Victor",
+  "date_published": "April 11, 2011",
+  "dek": "Bret Victor argues that the current symbolic approach to mathematics is unnecessarily restrictive and proposes \"Kill Math,\" a project aimed at developing more intuitive and accessible interfaces for understanding and solving quantitative problems using concrete representations.",
+  "markdownPath": "archive/1747127876.676257/content.md",
+  "media": [
+    "http://worrydream.com/KillMath/Images/anecdote1.png",
+    "http://worrydream.com/KillMath/Images/IntegratorLabels.png",
+    "http://worrydream.com/KillMath/Images/BalanceLabel.png",
+    "http://worrydream.com/KillMath/Images/anecdote2.png",
+    "http://worrydream.com/KillMath/Images/anecdote3.png",
+    "http://worrydream.com/KillMath/Images/strogatz.png"
+  ],
+  "links": [
+    "http://worrydream.com/",
+    "http://worrydream.com/KillMath/#update-2024",
+    "http://www.amazon.com/dp/0465010636",
+    "http://worrydream.com/refs/Lockhart_2002_-_A_Mathematician's_Lament.pdf",
+    "http://vihart.com/",
+    "http://www.cadaeic.net/",
+    "http://www.amazon.com/dp/0738204536",
+    "http://vimeo.com/23839605/",
+    "http://demonstrations.wolfram.com/",
+    "https://www.amazon.com/dp/9027725616",
+    "https://davidhestenes.net/geocalc/pdf/OerstedMedalLecture.pdf",
+    "https://www.archive.org/details/AlanKeyD1987",
+    "http://worrydream.com/refs/Thurston_1994_-_On_Proof_and_Progress_in_Mathematics.pdf",
+    "http://worrydream.com/refs/Hamming_1980_-_The_Unreasonable_Effectiveness_of_Mathematics.pdf",
+    "https://press.stripe.com/the-art-of-doing-science-and-engineering",
+    "https://www.amazon.com/dp/0738204536",
+    "http://worrydream.com/MediaForThinkingTheUnthinkable/",
+    "https://dynamicland.org/",
+    "http://worrydream.com/KillMath/"
+  ],
+  "warcPath": "archive/1747127876.676257/http---worrydream-com-KillMath-.warc.gz"
+}
