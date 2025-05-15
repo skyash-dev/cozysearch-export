@@ -3,7 +3,7 @@
   "author": "The article does not explicitly state the author's name.  It is written in a style suggesting a single author.",
   "date_published": "2020-08-05T18:30:00.000Z",
   "dek": "This article advocates for the use of sidenotes in web design as a superior alternative to footnotes and endnotes, improving readability by placing annotations directly in the page margins.  It reviews various implementations, recommending Tufte-CSS for simplicity and sidenotes.js for more complex needs.",
-  "markdownPath": "archive/1747125507.764969/content.md",
+  "markdownPath": "https://3567fd9e8d7f08df8c3f403f90f412f0.r2.cloudflarestorage.com/cozysearch/1747125507.764969/content.md",
   "media": [
     "https://gwern.net/doc/cs/css/sidenotes.png",
     "https://gwern.net/doc/design/typography/sidenote/2004-bringhurst-theelementsoftypographicstyle-pg70-marginsidenoteexample.png",
@@ -285,5 +285,5 @@
     "https://gwern.net/sidenote#link-bibliography-section",
     "https://gwern.net/sidenote"
   ],
-  "warcPath": "archive/1747125507.764969/https---gwern-net-sidenote.warc.gz"
+  "warcPath": "https://3567fd9e8d7f08df8c3f403f90f412f0.r2.cloudflarestorage.com/cozysearch/1747125507.764969/https---gwern-net-sidenote.warc.gz"
 }

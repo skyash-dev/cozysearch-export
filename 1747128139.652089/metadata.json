@@ -3,7 +3,7 @@
   "author": "Bret Victor",
   "date_published": "March 15, 2006",
   "dek": "Bret Victor critiques the prevalent approach to software design, arguing that the focus on interactive interfaces overlooks the core purpose of software: conveying information effectively. He proposes that software should prioritize clear visual communication, drawing parallels to established design disciplines like graphic and industrial design, rather than solely emphasizing interactive elements.",
-  "markdownPath": "archive/1747128139.652089/content.md",
+  "markdownPath": "https://3567fd9e8d7f08df8c3f403f90f412f0.r2.cloudflarestorage.com/cozysearch/1747128139.652089/content.md",
   "media": [
     "http://worrydream.com/MagicInk/p/a.png",
     "http://worrydream.com/MagicInk/p/logo_what_is_software.png",
@@ -565,5 +565,5 @@
     "http://worrydream.com/MagicInk/#p50",
     "http://worrydream.com/MagicInk/"
   ],
-  "warcPath": "archive/1747128139.652089/http---worrydream-com-MagicInk-.warc.gz"
+  "warcPath": "https://3567fd9e8d7f08df8c3f403f90f412f0.r2.cloudflarestorage.com/cozysearch/1747128139.652089/http---worrydream-com-MagicInk-.warc.gz"
 }

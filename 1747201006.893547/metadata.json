@@ -3,7 +3,7 @@
   "author": "Naya Fia (inferred from the URL in the article)",
   "date_published": "2019-11-15T00:00:00.000Z",
   "dek": "A researcher details their unconventional PhD-like journey studying open source software, highlighting phases of discovery, experimentation, and consolidation, and offering insights for those interested in pursuing independent research.",
-  "markdownPath": "archive/1747201006.893547/content.md",
+  "markdownPath": "https://3567fd9e8d7f08df8c3f403f90f412f0.r2.cloudflarestorage.com/cozysearch/1747201006.893547/content.md",
   "media": [],
   "links": [
     "https://nadia.xyz/phd#fn:1",
@@ -24,5 +24,5 @@
     "https://nadia.xyz/phd#fn:4",
     "https://nadia.xyz/phd"
   ],
-  "warcPath": "archive/1747201006.893547/https---nadia-xyz-phd.warc.gz"
+  "warcPath": "https://3567fd9e8d7f08df8c3f403f90f412f0.r2.cloudflarestorage.com/cozysearch/1747201006.893547/https---nadia-xyz-phd.warc.gz"
 }

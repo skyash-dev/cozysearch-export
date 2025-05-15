@@ -3,7 +3,7 @@
   "author": "Not specified in provided text.",
   "date_published": "2014-09-11T18:30:00.000Z",
   "dek": "Large datasets almost always show correlations between variables, even those seemingly unrelated. This challenges traditional null-hypothesis testing and impacts our understanding of causal models and statistical principles like sparsity.  The article explores reasons for this ubiquitous correlation, including inherent connections between real-world traits and the influence of latent variables.",
-  "markdownPath": "archive/1747124789.946712/content.md",
+  "markdownPath": "https://3567fd9e8d7f08df8c3f403f90f412f0.r2.cloudflarestorage.com/cozysearch/1747124789.946712/content.md",
   "media": [
     "https://gwern.net/doc/genetics/heritable/correlation/2007-smith-figure1-correlationdistribution.jpg",
     "https://gwern.net/doc/statistics/probability/2025-01-29-gwern-r-uncorrelatedmultivariatenormalsarerarelycorrelatedrgreaterthanpoint1.jpg",
@@ -473,5 +473,5 @@
     "https://gwern.net/everything#link-bibliography-section",
     "https://gwern.net/everything"
   ],
-  "warcPath": "archive/1747124789.946712/https---gwern-net-everything.warc.gz"
+  "warcPath": "https://3567fd9e8d7f08df8c3f403f90f412f0.r2.cloudflarestorage.com/cozysearch/1747124789.946712/https---gwern-net-everything.warc.gz"
 }

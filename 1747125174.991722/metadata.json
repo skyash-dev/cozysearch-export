@@ -3,7 +3,7 @@
   "author": "The author's name is not explicitly stated in the provided text.  The text refers to the author using \"I\" and \"my,\" suggesting a first-person narrative.  The author's website and other online presence is linked to the name Gwern.",
   "date_published": "2011-03-09T18:30:00.000Z",
   "dek": "This article details the significant problem of link rot—the decay of online links—and presents a multi-faceted strategy to combat it.  The author employs a combination of automated tools and Internet archiving services to preserve web pages referenced in their writings and combat link rot, emphasizing the importance of archiving for maintaining the integrity of online resources.",
-  "markdownPath": "archive/1747125174.991722/content.md",
+  "markdownPath": "https://3567fd9e8d7f08df8c3f403f90f412f0.r2.cloudflarestorage.com/cozysearch/1747125174.991722/content.md",
   "media": [],
   "links": [
     "https://gwern.net/timestamping",
@@ -424,5 +424,5 @@
     "https://gwern.net/archiving#link-bibliography-section",
     "https://gwern.net/archiving"
   ],
-  "warcPath": "archive/1747125174.991722/https---gwern-net-archiving.warc.gz"
+  "warcPath": "https://3567fd9e8d7f08df8c3f403f90f412f0.r2.cloudflarestorage.com/cozysearch/1747125174.991722/https---gwern-net-archiving.warc.gz"
 }

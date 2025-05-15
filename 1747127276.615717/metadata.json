@@ -3,7 +3,7 @@
   "author": "Not specified in the provided text.",
   "date_published": "Not specified in the provided text.",
   "dek": "Designing complex systems often involves navigating the unknown. This essay introduces the \"ladder of abstraction,\" a technique for moving fluidly between different levels of system understanding, from concrete implementations to high-level abstractions, to gain insight and improve design through iterative prototyping and exploration.",
-  "markdownPath": "archive/1747127276.615717/content.md",
+  "markdownPath": "https://3567fd9e8d7f08df8c3f403f90f412f0.r2.cloudflarestorage.com/cozysearch/1747127276.615717/content.md",
   "media": [
     "http://worrydream.com/LadderOfAbstraction/Images/LadderIcon0.png",
     "http://worrydream.com/LadderOfAbstraction/Images/LadderIcon1.png",
@@ -36,5 +36,5 @@
     "http://worrydream.com/SimulationAsAPracticalTool/",
     "http://worrydream.com/LadderOfAbstraction/"
   ],
-  "warcPath": "archive/1747127276.615717/http---worrydream-com-LadderOfAbstraction-.warc.gz"
+  "warcPath": "https://3567fd9e8d7f08df8c3f403f90f412f0.r2.cloudflarestorage.com/cozysearch/1747127276.615717/http---worrydream-com-LadderOfAbstraction-.warc.gz"
 }

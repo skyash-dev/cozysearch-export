@@ -3,7 +3,7 @@
   "author": "Not explicitly stated, but implied to be the author of the blog \"Putanumonit\"",
   "date_published": "2018-09-07T20:13:38.000Z",
   "dek": "A replication crisis in psychology studies published in _Nature_ and _Science_ revealed that many findings couldn't be reproduced. However, prediction markets and simple peer surveys accurately predicted which studies would replicate, suggesting that identifying flawed research is easier than it seems.  The author proposes \"Jacob's Rule of Anti-Significance,\" suggesting that p-values just below 0.05 are likely false due to p-hacking, while those just above 0.05 might be true.",
-  "markdownPath": "archive/1747204937.587681/content.md",
+  "markdownPath": "https://3567fd9e8d7f08df8c3f403f90f412f0.r2.cloudflarestorage.com/cozysearch/1747204937.587681/content.md",
   "media": [
     "https://putanumonit.com/wp-content/uploads/2018/09/replication-guess1.png?w=601&h=336",
     "https://putanumonit.com/wp-content/uploads/2018/09/talebs-grandma.png?w=500&h=520",
@@ -40,5 +40,5 @@
     "https://putanumonit.com/2016/12/18/multiplicitous/",
     "https://putanumonit.com/2018/09/07/the-scent-of-bad-psychology/"
   ],
-  "warcPath": "archive/1747204937.587681/https---putanumonit-com-2018-09-07-the-scent-of-bad-psychology-.warc.gz"
+  "warcPath": "https://3567fd9e8d7f08df8c3f403f90f412f0.r2.cloudflarestorage.com/cozysearch/1747204937.587681/https---putanumonit-com-2018-09-07-the-scent-of-bad-psychology-.warc.gz"
 }

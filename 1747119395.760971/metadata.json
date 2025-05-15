@@ -3,7 +3,7 @@
   "author": "Not specified in the provided text.",
   "date_published": "2021-05-07T13:56:33.000Z",
   "dek": "The article uses the concept of \"solid-state\" – reliability and efficiency through minimized moving parts – to explain how Stripe and similar companies are simplifying complex business processes like payments, making them work as intuitively as users imagine they should.",
-  "markdownPath": "archive/1747119395.760971/content.md",
+  "markdownPath": "https://3567fd9e8d7f08df8c3f403f90f412f0.r2.cloudflarestorage.com/cozysearch/1747119395.760971/content.md",
   "media": [
     "https://www.thediff.co/content/images/public/images/12f09052-6a45-448e-8487-4d1333db4ea1_1116x1666.png",
     "https://www.thediff.co/content/images/public/images/2400685a-0607-4715-9d8b-0b3075c4675f_1170x2532.png"
@@ -59,5 +59,5 @@
     "https://rhg.com/research/chinas-emissions-surpass-developed-countries/?ref=thediff.co",
     "https://www.thediff.co/archive/stripe/"
   ],
-  "warcPath": "archive/1747119395.760971/https---www-thediff-co-archive-stripe-.warc.gz"
+  "warcPath": "https://3567fd9e8d7f08df8c3f403f90f412f0.r2.cloudflarestorage.com/cozysearch/1747119395.760971/https---www-thediff-co-archive-stripe-.warc.gz"
 }

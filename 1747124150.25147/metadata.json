@@ -3,7 +3,7 @@
   "author": "Gwern Branwen (Inferred from the URL style and other writings)",
   "date_published": "2011-05-03T18:30:00.000Z",
   "dek": "This essay analyzes Light Yagami's mistakes in the manga *Death Note* from a computer security and information theory perspective, quantifying his loss of anonymity through various actions.  The author argues that Light's biggest mistake was using confidential police information, costing him significantly more anonymity than other actions like his unusual killing methods or reacting to provocations. The essay concludes by suggesting how Light could have used the Death Note more effectively.",
-  "markdownPath": "archive/1747124150.25147/content.md",
+  "markdownPath": "https://3567fd9e8d7f08df8c3f403f90f412f0.r2.cloudflarestorage.com/cozysearch/1747124150.25147/content.md",
   "media": [
     "https://gwern.net/doc/cs/algorithm/information/compression/2004-ryannorth-dinosaurcomics-391.png"
   ],
@@ -338,5 +338,5 @@
     "https://gwern.net/death-note-anonymity#link-bibliography-section",
     "https://gwern.net/death-note-anonymity"
   ],
-  "warcPath": "archive/1747124150.25147/https---gwern-net-death-note-anonymity.warc.gz"
+  "warcPath": "https://3567fd9e8d7f08df8c3f403f90f412f0.r2.cloudflarestorage.com/cozysearch/1747124150.25147/https---gwern-net-death-note-anonymity.warc.gz"
 }
